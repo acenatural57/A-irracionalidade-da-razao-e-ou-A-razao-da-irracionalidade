@@ -842,7 +842,7 @@ Apocalypse 17
 <!-- TOC --><a name="pecado"></a>
 #### Pecado
 
-- O pecado não deve ser visto como algo do egoísmo de Deus que só quer que seja feita a vontade dele, mas é exatamente o contrário ao egoísmo, é a compaixão e Amor, pois o pecado só leva ao sofrimento, o pecado não é uma simples desobediência à Deus, mas uma perdição de si mesmo, em que muitos só percebem o quanto estão perdidos tarde demais, e só se dão conta que nunca foi egoísmo de Deus mais sim o zelo, amor e compaixão por nós.
+- A definição de pecado não deve ser visto como algo do egoísmo de Deus que só quer que seja feita a vontade dele, mas é exatamente o contrário ao egoísmo, é a compaixão e Amor, pois o pecado só leva ao sofrimento, o pecado não é uma simples desobediência à Deus, mas uma perdição de si mesmo, em que muitos só percebem o quanto estão perdidos tarde demais, e só se dão conta que nunca foi egoísmo de Deus mais sim o zelo, amor e compaixão por nós.
 
 - Não é suficiente apenas praticar bons valores e costumes, e evitar pecar simplesmente para agradar a Deus de forma rasa, pois muito deste caminho se vai pela moralidade, que de certo modo também tem seu valor, mas não adianta honrar a Deus apenas com a boca e com ações, mas é preciso que seja de coração, pois quando feito de coração, quando feito com Amor nada pesa. O pecado não é um egoísmo e desobediência à Deus porque supostamente você acha que Deus precisa de você, não é porque Deus quer ser adorado, o pecado é algo que lhe afasta dele, lhe afasta da luz e lhe leva às trevas, mesmo que ilusioriamente as trevas/pecado pareçam ser prazerosas, cedo ou tarde (infelizmente para alguns tarde demais) se percebe que só leva ao sofrimento, e tudo que Deus quer é apenas não ver você sofrer.
 
