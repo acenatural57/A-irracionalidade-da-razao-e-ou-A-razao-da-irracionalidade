@@ -2,9 +2,11 @@
 
 - [Título: A irracionalidade da razão e/ou A razão da irracionalidade](#título-a-irracionalidade-da-razão-eou-a-razão-da-irracionalidade)
    * [Prelúdio](#prelúdio)
+   
          - [Como fazer a Leitura deste ou qualquer texto/livro/obra](#como-fazer-a-leitura-deste-ou-qualquer-textolivroobra)
          - [Agradecimentos](#agradecimentos)
-   + [Início](#início)
+   * [Início](#início)
+   
          - [Como era no princípio agora e sempre amém ](#como-era-no-princípio-agora-e-sempre-amém)
          - [Missão](#missão)
          - [Sobre estudos](#sobre-estudos)
@@ -144,6 +146,7 @@
          - [Contagem de anos](#contagem-de-anos)
          - [No fim](#no-fim)
          - [Ezequiel ](#ezequiel)
+         
       + [Fim - part 1](#fim-part-1)
          - [Profecia se cumprir](#profecia-se-cumprir)
          - [Calmaria antes do FIM](#calmaria-antes-do-fim)
@@ -202,7 +205,7 @@
          - [Oração a São Miguel](#oração-a-são-miguel)
          - [Oração de São Francisco](#oração-de-são-francisco)
          - [Oração personalizada de Anderson](#oração-personalizada-de-anderson)
-   + [Monte sinai](#monte-sinai)
+   * [Monte sinai](#monte-sinai)
          - [Para mim no dia 11/10/2024 em "O INFORMANTE"](#para-mim-no-dia-11102024-em-o-informante)
          - [Divisão](#divisão)
          - [Decendente de Enoque](#decendente-de-enoque)
@@ -236,7 +239,7 @@
          - [Maturidade ](#maturidade)
          - [Mais uma frase solta](#mais-uma-frase-solta)
          - [Devedores Juros](#devedores-juros)
-   + [Final livro](#final-livro)
+   * [Final livro](#final-livro)
 
 <!-- TOC end -->
 
