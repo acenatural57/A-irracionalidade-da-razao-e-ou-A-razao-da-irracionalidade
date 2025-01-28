@@ -1,12 +1,10 @@
 <!-- TOC start (generated with https://github.com/derlin/bitdowntoc) -->
 
 - [Título: A irracionalidade da razão e/ou A razão da irracionalidade](#título-a-irracionalidade-da-razão-eou-a-razão-da-irracionalidade)
-   * [Prelúdio](#prelúdio)
-   
+   * [Prelúdio](#prelúdio)<br>
          - [Como fazer a Leitura deste ou qualquer texto/livro/obra](#como-fazer-a-leitura-deste-ou-qualquer-textolivroobra)
          - [Agradecimentos](#agradecimentos)
-   * [Início](#início)
-   
+   * [Início](#início)<br>
          - [Como era no princípio agora e sempre amém ](#como-era-no-princípio-agora-e-sempre-amém)
          - [Missão](#missão)
          - [Sobre estudos](#sobre-estudos)
@@ -146,7 +144,6 @@
          - [Contagem de anos](#contagem-de-anos)
          - [No fim](#no-fim)
          - [Ezequiel ](#ezequiel)
-         
       + [Fim - part 1](#fim-part-1)
          - [Profecia se cumprir](#profecia-se-cumprir)
          - [Calmaria antes do FIM](#calmaria-antes-do-fim)
