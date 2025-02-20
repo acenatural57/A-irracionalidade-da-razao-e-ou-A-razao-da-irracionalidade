@@ -171,8 +171,6 @@
       - [Israel](#israel)
       - [Senhores da escravidão](#senhores-da-escravidão)
       - [Falsos Profetas](#falsos-profetas)
-      - [Senhores da escravidão](#senhores-da-escravidão-1)
-      - [Falsos Profetas](#falsos-profetas-1)
       - [Apocalipse](#apocalipse)
       - [Revelação ](#revelação)
       - [Sobre arrebatamento](#sobre-arrebatamento)
@@ -4261,59 +4259,6 @@ Tiago 5
 - Babilônia, Egito, Roma, EUA, Governantes, Empresários, Ricos, que escravizam as nações, o senhor exércitos irá agir contra vocês, a não ser que antes vocês se convertam em seus corações por boa vontade. Para os de fé, é importante sempre as manter e deixar o mal (Irá, soberba, ganância, gula, preguiça, inveja, luxúria e mentira) bem longe do seu coração.
 
 <!-- TOC --><a name="falsos-profetas"></a>
-#### Falsos Profetas
-
-Mateus 7
-
-15. Guardai-vos dos falsos profetas. Eles vêm a vós disfarçados de ovelhas, mas por dentro são lobos arrebatadores.
-16. Pelos seus frutos os conhecereis. Colhem-se, porventura, uvas dos espinhos e figos dos abrolhos?
-17. Toda árvore boa dá bons frutos; toda árvore má dá maus frutos.
-18. Uma árvore boa não pode dar maus frutos; nem uma árvore má, bons frutos.
-19. Toda árvore que não der bons frutos será cortada e lançada ao fogo.
-20. Pelos seus frutos os conhecereis.
-
-<!-- TOC --><a name="senhores-da-escravidão-1"></a>
-#### Senhores da escravidão
-
-Mateus 22
-
-15. Então, retirando-se os fariseus, consultaram entre si como o surpreenderiam alguma palavra;
-16. E enviaram-lhe os seus discípulos, com os herodianos, dizendo: Mestre, bem sabemos que és verdadeiro, e ensinas o caminho de Deus segundo a verdade, e de ninguém se te dá, porque não olhas a aparência dos homens.
-17. Dize-nos, pois, que te parece? É lícito pagar o tributo a César, ou não?
-18. Jesus, porém, conhecendo a sua malícia, disse: Por que me experimentais, hipócritas?
-19. Mostrai-me a moeda do tributo. E eles lhe apresentaram um dinheiro.
-20. E ele diz-lhes: De quem é esta efígie e esta inscrição?
-21. Dizem-lhe eles: De César. Então ele lhes disse: Dai pois a César o que é de César, e a Deus o que é de Deus.
-
-Mateus 5
-
-38. Ouvistes que foi dito: Olho por olho, e dente por dente.
-39. Eu, porém, vos digo que não resistais ao mau; mas, se qualquer te bater na face direita, oferece-lhe também a outra;
-40. E, ao que quiser pleitear contigo, e tirar-te a túnica, larga-lhe também a capa;
-41. E, se qualquer te obrigar a caminhar uma milha, vai com ele duas.
-42. Dá a quem te pedir, e não te desvies daquele que quiser que lhe emprestes.
-43. Ouvistes que foi dito: Amarás o teu próximo, e odiarás o teu inimigo.
-44. Eu, porém, vos digo: Amai a vossos inimigos, bendizei os que vos maldizem, fazei bem aos que vos odeiam, e orai pelos que vos maltratam e vos perseguem; para que sejais filhos do vosso Pai que está nos céus;
-
-- Sobre o novo controle financeiro que o governo irá fazer. Daí a Cezar o que é de Cezar e daí a Deus o que é Deus. Desde que o templo e trono de Deus que é seu corpo e coração permaneça por dentro limpo, mesmo que por fora a casca fique suja, não se deve resistir ao mal.
-
-Tiago 5
-
-1. Vós, ricos, chorai e gemei por causa das desgraças que sobre vós virão.
-2. Vossas riquezas apodreceram e vossas roupas foram comidas pela traça.
-3. Vosso ouro e vossa prata enferrujaram-se e a sua ferrugem dará testemunho contra vós e devorará vossas carnes como fogo. Entesourastes nos últimos dias!
-4. Eis que o salário, que defraudastes aos trabalhadores que ceifavam os vossos campos, clama, e seus gritos de ceifadores chegaram aos ouvidos do Senhor dos exércitos.
-5. Tendes vivido em delícias e em dissoluções sobre a terra, e saciastes os vossos corações para o dia da matança!
-6. Condenastes e matastes o justo, e ele não vos resistiu.
-7. Tende, pois, paciência, meus irmãos, até a vinda do Senhor. Vede o lavrador: ele aguarda o precioso fruto da terra e tem paciência até receber a chuva do outono e a da primavera.*
-8. Tende também vós paciência e fortalecei os vossos corações, porque a vinda do Senhor está próxima.
-9. Não vos queixeis uns dos outros, para que não sejais julgados. Eis que o juiz está à porta.
-10. Tomai, irmãos, por modelo de paciência e de coragem os profetas, que falaram em nome do Senhor.
-11. Vós sabeis que felicitamos os que suportam os sofrimentos de Jó. Vós conheceis o fim em que o Senhor o colocou, porque o Senhor é misericordioso e compassivo.
-
-- Babilônia, Egito, Roma, EUA, Governantes, Empresários, Ricos, que escravizam as nações, o senhor exércitos irá agir contra vocês, a não ser que antes vocês se convertam em seus corações por boa vontade. Para os de fé, é importante sempre as manter e deixar o mal (Irá, soberba, ganância, gula, preguiça, inveja, luxúria e mentira) bem longe do seu coração.
-
-<!-- TOC --><a name="falsos-profetas-1"></a>
 #### Falsos Profetas
 
 Mateus 7
