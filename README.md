@@ -2,90 +2,95 @@
 
 - [Título: A irracionalidade da razão e/ou A razão da irracionalidade](#título-a-irracionalidade-da-razão-eou-a-razão-da-irracionalidade)
    * [Prelúdio](#prelúdio)
-      - [Como fazer a Leitura deste ou qualquer texto/livro/obra](#como-fazer-a-leitura-deste-ou-qualquer-textolivroobra)
-      - [Agradecimentos](#agradecimentos)
+      + [Como fazer a Leitura deste ou qualquer texto/livro/obra](#como-fazer-a-leitura-deste-ou-qualquer-textolivroobra)
+      + [Agradecimentos](#agradecimentos)
    * [Início](#início)
-      - [Como era no princípio agora e sempre amém ](#como-era-no-princípio-agora-e-sempre-amém)
-      - [Missão](#missão)
-      - [Sobre estudos](#sobre-estudos)
-      - [Criação](#criação)
-      - [O mal](#o-mal)
-      - [Gnose é o mal (ganância por conhecimento)](#gnose-é-o-mal-ganância-por-conhecimento)
-      - [Mentiras e Manipulações](#mentiras-e-manipulações)
-      - [Trevas](#trevas)
-      - [Lúcifer](#lúcifer)
-      - [Ungido do senhor](#ungido-do-senhor)
-      - [Controle da Ira, raiva, ódio quente ou frio](#controle-da-ira-raiva-ódio-quente-ou-frio)
-      - [Após a conversão ](#após-a-conversão)
-      - [Perseguir o mal](#perseguir-o-mal)
-      - [Só o Amor é o caminho ( O amor de Deus )](#só-o-amor-é-o-caminho-o-amor-de-deus-)
-      - [Se equivocar](#se-equivocar)
-      - [Do porque Deus não se revela antes da hora](#do-porque-deus-não-se-revela-antes-da-hora)
-      - [Sobre amar a si mesmo (amor próprio)](#sobre-amar-a-si-mesmo-amor-próprio)
-      - [Amar a Deus sobre todas as coisas](#amar-a-deus-sobre-todas-as-coisas)
-      - [Escolha](#escolha)
-      - [Ajudar o próximo](#ajudar-o-próximo)
-      - [Ajudar o próximo com dinheiro](#ajudar-o-próximo-com-dinheiro)
-      - [Se sacrificar pelo próximo](#se-sacrificar-pelo-próximo)
-      - [Sobre julgar ou amar o próximo](#sobre-julgar-ou-amar-o-próximo)
-      - [O que fazer quando não estamos evoluídos espiritualmente e somos Egoístas](#o-que-fazer-quando-não-estamos-evoluídos-espiritualmente-e-somos-egoístas)
-      - [Táticas de auto reflexão ](#táticas-de-auto-reflexão)
-      - [Agradecer sempre à Deus](#agradecer-sempre-à-deus)
-      - [Humildade](#humildade)
-      - [Ignorância](#ignorância)
-      - [Dar a outra face](#dar-a-outra-face)
-      - [Perdão e ressentimento ](#perdão-e-ressentimento)
-      - [Reconciliação em casos de Guerra e ameaças de morte](#reconciliação-em-casos-de-guerra-e-ameaças-de-morte)
-      - [Inveja](#inveja)
-      - [Prudência](#prudência)
-      - [Igreja](#igreja)
-      - [Religião](#religião)
-      - [Pregação da palavra](#pregação-da-palavra)
-      - [Niilismo](#niilismo)
-      - [Velho x Novo Testamento](#velho-x-novo-testamento)
-      - [Sobre perspectiva](#sobre-perspectiva)
-      - [Perspectiva de ensinar e se importar:](#perspectiva-de-ensinar-e-se-importar)
-      - [Sociedade e juventude](#sociedade-e-juventude)
-      - [Notas avaliativas](#notas-avaliativas)
-      - [Sociedade no geral](#sociedade-no-geral)
-      - [Leis](#leis)
-      - [Roupas e vestes](#roupas-e-vestes)
-      - [Desigualdade](#desigualdade)
-      - [Disciplina e correção](#disciplina-e-correção)
-      - [Ambientes, família e amigos](#ambientes-família-e-amigos)
-      - [Autoridade](#autoridade)
-      - [Reflexão de valores na Educação dos filhos](#reflexão-de-valores-na-educação-dos-filhos)
-      - [Como explicar as crianças como os bebês nascem](#como-explicar-as-crianças-como-os-bebês-nascem)
-      - [Honrar pai e mãe ](#honrar-pai-e-mãe)
-      - [Tatuagens](#tatuagens)
-      - [Amor de verdade](#amor-de-verdade)
-      - [Onde Deus está ?](#onde-deus-está-)
-      - [Deus castiga ?](#deus-castiga-)
-      - [Sobre limites do poder de Deus, se quiser ser sábio se faça de louco](#sobre-limites-do-poder-de-deus-se-quiser-ser-sábio-se-faça-de-louco)
-      - [Incompreensão do divino](#incompreensão-do-divino)
-      - [Fé](#fé)
-      - [Confiança ](#confiança)
-      - [Trindade (Em nome do pai, filho, E Espírito Santo)](#trindade-em-nome-do-pai-filho-e-espírito-santo)
-      - [Coração, corpo e mente](#coração-corpo-e-mente)
-      - [Deus sem você é Deus](#deus-sem-você-é-deus)
-      - [Quando o mundo quebra suas pernas Deus lhe convoca](#quando-o-mundo-quebra-suas-pernas-deus-lhe-convoca)
-      - [Como não cair nas tentações do mundo](#como-não-cair-nas-tentações-do-mundo)
-      - [Bebidas, drogas e vícios](#bebidas-drogas-e-vícios)
-      - [Castidade, Masturbação, Pornografia, Drogas, Bebidas, Vícios, Gula, dinheiro, influência e poder](#castidade-masturbação-pornografia-drogas-bebidas-vícios-gula-dinheiro-influência-e-poder)
-      - [Consciência x Sonhos aos dormir](#consciência-x-sonhos-aos-dormir)
-      - [A dádiva da vida](#a-dádiva-da-vida)
-      - [Dos desejos estéticos ou performance materialistas](#dos-desejos-estéticos-ou-performance-materialistas)
-      - [Consciência, distração, Inquietação e desejos de barulho](#consciência-distração-inquietação-e-desejos-de-barulho)
-      - [Buscar honrar à Deus e não aos homens](#buscar-honrar-à-deus-e-não-aos-homens)
-      - [Sobre manter a palavra e não precisar jurar](#sobre-manter-a-palavra-e-não-precisar-jurar)
-      - [Sobre pequeninos](#sobre-pequeninos)
-      - [Ressuscitar(Renascer) em Cristo](#ressuscitarrenascer-em-cristo)
-      - [4 tipos de homens:](#4-tipos-de-homens)
-      - [Relacionamento - Síntese - O início](#relacionamento-síntese-o-início)
+      + [Como era no princípio agora e sempre amém ](#como-era-no-princípio-agora-e-sempre-amém)
+      + [Missão](#missão)
+      + [Sobre estudos](#sobre-estudos)
+      + [Criação](#criação)
+      + [O mal](#o-mal)
+      + [Gnose é o mal (ganância por conhecimento)](#gnose-é-o-mal-ganância-por-conhecimento)
+      + [Mentiras e Manipulações](#mentiras-e-manipulações)
+      + [Trevas](#trevas)
+      + [Lúcifer](#lúcifer)
+      + [Ungido do senhor](#ungido-do-senhor)
+      + [Controle da Ira, raiva, ódio quente ou frio](#controle-da-ira-raiva-ódio-quente-ou-frio)
+      + [Após a conversão ](#após-a-conversão)
+      + [Perseguir o mal](#perseguir-o-mal)
+      + [Só o Amor é o caminho ( O amor de Deus )](#só-o-amor-é-o-caminho-o-amor-de-deus-)
+      + [Se equivocar](#se-equivocar)
+      + [Do porque Deus não se revela antes da hora](#do-porque-deus-não-se-revela-antes-da-hora)
+      + [Sobre amar a si mesmo (amor próprio)](#sobre-amar-a-si-mesmo-amor-próprio)
+      + [Amar a Deus sobre todas as coisas](#amar-a-deus-sobre-todas-as-coisas)
+      + [Escolha](#escolha)
+      + [Ajudar o próximo](#ajudar-o-próximo)
+      + [Ajudar o próximo com dinheiro](#ajudar-o-próximo-com-dinheiro)
+      + [Afastamento de um teimoso](#afastamento-de-um-teimoso)
+      + [Se sacrificar pelo próximo](#se-sacrificar-pelo-próximo)
+      + [Sobre julgar ou amar o próximo](#sobre-julgar-ou-amar-o-próximo)
+      + [O que fazer quando não estamos evoluídos espiritualmente e somos Egoístas](#o-que-fazer-quando-não-estamos-evoluídos-espiritualmente-e-somos-egoístas)
+      + [Táticas de auto reflexão ](#táticas-de-auto-reflexão)
+      + [Agradecer sempre à Deus](#agradecer-sempre-à-deus)
+      + [Humildade](#humildade)
+      + [Ignorância](#ignorância)
+      + [Dar a outra face](#dar-a-outra-face)
+      + [Perdão e ressentimento ](#perdão-e-ressentimento)
+      + [Reconciliação em casos de Guerra e ameaças de morte](#reconciliação-em-casos-de-guerra-e-ameaças-de-morte)
+      + [Inveja](#inveja)
+      + [Prudência](#prudência)
+      + [Igreja](#igreja)
+      + [Religião](#religião)
+      + [Pregação da palavra](#pregação-da-palavra)
+      + [Niilismo](#niilismo)
+      + [Velho x Novo Testamento](#velho-x-novo-testamento)
+      + [Sobre perspectiva](#sobre-perspectiva)
+      + [Perspectiva de ensinar e se importar:](#perspectiva-de-ensinar-e-se-importar)
+      + [Sociedade e juventude](#sociedade-e-juventude)
+      + [Notas avaliativas](#notas-avaliativas)
+      + [Sociedade no geral](#sociedade-no-geral)
+      + [Roupas e vestes](#roupas-e-vestes)
+      + [Desigualdade](#desigualdade)
+      + [Disciplina e correção](#disciplina-e-correção)
+      + [Ambientes, família e amigos](#ambientes-família-e-amigos)
+      + [Convívio social para excessivamente introvertidos](#convívio-social-para-excessivamente-introvertidos)
+      + [Autoridade](#autoridade)
+      + [Reflexão de valores na Educação dos filhos](#reflexão-de-valores-na-educação-dos-filhos)
+      + [Como explicar as crianças como os bebês nascem](#como-explicar-as-crianças-como-os-bebês-nascem)
+      + [Honrar pai e mãe ](#honrar-pai-e-mãe)
+      + [Tatuagens](#tatuagens)
+      + [Amor de verdade](#amor-de-verdade)
+      + [Onde Deus está ?](#onde-deus-está-)
+      + [Deus castiga ?](#deus-castiga-)
+      + [Sobre limites do poder de Deus, se quiser ser sábio se faça de louco](#sobre-limites-do-poder-de-deus-se-quiser-ser-sábio-se-faça-de-louco)
+      + [Fé](#fé)
+      + [Confiança ](#confiança)
+      + [Trindade (Em nome do pai, filho, E Espírito Santo)](#trindade-em-nome-do-pai-filho-e-espírito-santo)
+      + [Coração, corpo e mente](#coração-corpo-e-mente)
+      + [Deus sem você é Deus](#deus-sem-você-é-deus)
+      + [Quando o mundo quebra suas pernas Deus lhe convoca](#quando-o-mundo-quebra-suas-pernas-deus-lhe-convoca)
+      + [Como não cair nas tentações do mundo](#como-não-cair-nas-tentações-do-mundo)
+      + [Bebidas, drogas e vícios](#bebidas-drogas-e-vícios)
+      + [Castidade, Masturbação, Pornografia, Drogas, Bebidas, Vícios, Gula, dinheiro, influência e poder](#castidade-masturbação-pornografia-drogas-bebidas-vícios-gula-dinheiro-influência-e-poder)
+      + [Avareza, Dinheiro, desapego e dosagem do remédio](#avareza-dinheiro-desapego-e-dosagem-do-remédio)
+      + [Consciência x Sonhos aos dormir](#consciência-x-sonhos-aos-dormir)
+      + [Dos desejos estéticos ou performance materialistas](#dos-desejos-estéticos-ou-performance-materialistas)
+      + [A dádiva da vida](#a-dádiva-da-vida)
+      + [Consciência, distração, Inquietação e desejos de barulho](#consciência-distração-inquietação-e-desejos-de-barulho)
+      + [Zona de conforto ( escrever logo após vícios)](#zona-de-conforto-escrever-logo-após-vícios)
+      + [Escolher a Escravidão](#escolher-a-escravidão)
+      + [Buscar honrar à Deus e não aos homens](#buscar-honrar-à-deus-e-não-aos-homens)
+      + [Sobre manter a palavra e não precisar jurar](#sobre-manter-a-palavra-e-não-precisar-jurar)
+      + [Sobre pequeninos](#sobre-pequeninos)
+      + [Ressuscitar(Renascer) em Cristo](#ressuscitarrenascer-em-cristo)
+      + [4 tipos de homens:](#4-tipos-de-homens)
+      + [Relacionamento - Síntese - O início](#relacionamento-síntese-o-início)
          - [Níveis de Maturidades](#níveis-de-maturidades)
          - [Maturidade: divisão homem x mulher](#maturidade-divisão-homem-x-mulher)
          - [Alívios ilusórios](#alívios-ilusórios)
          - [Sobre encontrar a pessoa certa](#sobre-encontrar-a-pessoa-certa)
+         - [Flerte](#flerte)
+         - [Introvertido x Extrovertido](#introvertido-x-extrovertido)
          - [Beleza](#beleza)
          - [Castidade](#castidade)
          - [Sexo antes do casamento ?](#sexo-antes-do-casamento-)
@@ -99,55 +104,58 @@
          - [Convivência](#convivência)
          - [Divórcio](#divórcio)
          - [Dar a outra face após a traição no relacionamento](#dar-a-outra-face-após-a-traição-no-relacionamento)
+         - [Ajudar quem está quebrado](#ajudar-quem-está-quebrado)
          - [Dádivas](#dádivas)
          - [Reflexão da história](#reflexão-da-história)
          - [Família ](#família)
          - [Atualidade](#atualidade)
          - [Experiências ](#experiências)
          - [A pura maldade](#a-pura-maldade)
-      - [Intensidade - Atração física - Ilusões](#intensidade-atração-física-ilusões)
-      - [Extras](#extras)
-      - [Frases soltas](#frases-soltas)
-      - [Mais uma frase solta](#mais-uma-frase-solta)
-      - [Jejum, Castidade, Penitência](#jejum-castidade-penitência)
-      - [A carne é fraca](#a-carne-é-fraca)
-      - [Mulheres cheias de espíritos espúrios](#mulheres-cheias-de-espíritos-espúrios)
-      - [Monstros](#monstros)
-      - [Quente, morno, frio](#quente-morno-frio)
-      - [Danças ](#danças)
-      - [Preconceitos](#preconceitos)
-      - [Qualidade](#qualidade)
-      - [Medo de pecar](#medo-de-pecar)
-      - [Estátua da Liberdade x Estátua de Jesus Cristo](#estátua-da-liberdade-x-estátua-de-jesus-cristo)
-      - [Imagem x Idolatria](#imagem-x-idolatria)
-      - [O louco amor de Deus](#o-louco-amor-de-deus)
-      - [Batismo e nascimento](#batismo-e-nascimento)
-      - [Confissão ](#confissão)
-      - [Purificação](#purificação)
-      - [Eucaristia / Comunhão ](#eucaristia-comunhão)
-      - [Santos e interseções](#santos-e-interseções)
-      - [Santidade](#santidade)
-      - [Morte, Inferno, Purgatório](#morte-inferno-purgatório)
-      - [Mas Deus é misericordioso e todo poderoso, ele pode nos salvar?](#mas-deus-é-misericordioso-e-todo-poderoso-ele-pode-nos-salvar)
-      - [Purgatório](#purgatório)
-      - [Possessão/Habitação](#possessãohabitação)
-      - [Magia negra](#magia-negra)
-      - [Pecado](#pecado)
-      - [Pecados Mortais](#pecados-mortais)
-      - [Outras doutrinas](#outras-doutrinas)
-      - [Esperança](#esperança)
-      - [Demônios](#demônios)
-      - [Satanás](#satanás)
-      - [Vampiros/Demônios debaixo da terra](#vampirosdemônios-debaixo-da-terra)
-      - [Exorcismo](#exorcismo)
-      - [Diferença de espíritos das trevas e de luz](#diferença-de-espíritos-das-trevas-e-de-luz)
-      - [Reencarnação ](#reencarnação)
-      - [Ejaculação, sexo, vida ](#ejaculação-sexo-vida)
-      - [Sobre julgamento e autoridade](#sobre-julgamento-e-autoridade)
-      - [O Julgamento](#o-julgamento)
-      - [Julgamento e vontade divina](#julgamento-e-vontade-divina)
-      - [Incompreensão do divino](#incompreensão-do-divino-1)
-      - [Reflexões sobre o fim](#reflexões-sobre-o-fim)
+      + [Intensidade - Atração física - Ilusões](#intensidade-atração-física-ilusões)
+      + [Extras](#extras)
+      + [Frases soltas](#frases-soltas)
+      + [Mais uma frase solta](#mais-uma-frase-solta)
+      + [Jejum, Castidade, Penitência](#jejum-castidade-penitência)
+      + [A carne é fraca](#a-carne-é-fraca)
+      + [Mulheres cheias de espíritos espúrios](#mulheres-cheias-de-espíritos-espúrios)
+      + [Monstros](#monstros)
+      + [Quente, morno, frio](#quente-morno-frio)
+      + [Danças ](#danças)
+      + [Preconceitos](#preconceitos)
+      + [Qualidade](#qualidade)
+      + [Medo de pecar](#medo-de-pecar)
+      + [Estátua da Liberdade x Estátua de Jesus Cristo](#estátua-da-liberdade-x-estátua-de-jesus-cristo)
+      + [Imagem x Idolatria](#imagem-x-idolatria)
+      + [O louco amor de Deus](#o-louco-amor-de-deus)
+      + [Batismo e nascimento](#batismo-e-nascimento)
+      + [Confissão ](#confissão)
+      + [Purificação](#purificação)
+      + [Eucaristia / Comunhão ](#eucaristia-comunhão)
+      + [Santa Missa](#santa-missa)
+      + [Santos e interseções](#santos-e-interseções)
+      + [Santidade](#santidade)
+      + [Morte, Céu, Inferno, Purgatório](#morte-céu-inferno-purgatório)
+      + [Seria possível uma alma sair do inferno para o purgatório ?](#seria-possível-uma-alma-sair-do-inferno-para-o-purgatório-)
+      + [Mas Deus é misericordioso e todo poderoso, ele pode nos salvar?](#mas-deus-é-misericordioso-e-todo-poderoso-ele-pode-nos-salvar)
+      + [Purgatório](#purgatório)
+      + [Possessão/Habitação](#possessãohabitação)
+      + [Magia negra](#magia-negra)
+      + [Pecado](#pecado)
+      + [Pecados Mortais](#pecados-mortais)
+      + [Outras doutrinas](#outras-doutrinas)
+      + [Esperança](#esperança)
+      + [Demônios](#demônios)
+      + [Satanás](#satanás)
+      + [Vampiros/Demônios debaixo da terra](#vampirosdemônios-debaixo-da-terra)
+      + [Exorcismo](#exorcismo)
+      + [Diferença de espíritos das trevas e de luz](#diferença-de-espíritos-das-trevas-e-de-luz)
+      + [Reencarnação ](#reencarnação)
+      + [Ejaculação, sexo, vida ](#ejaculação-sexo-vida)
+      + [Sobre julgamento e autoridade](#sobre-julgamento-e-autoridade)
+      + [O Julgamento](#o-julgamento)
+      + [Julgamento e vontade divina](#julgamento-e-vontade-divina)
+      + [Incompreensão do divino](#incompreensão-do-divino)
+      + [Reflexões sobre o fim](#reflexões-sobre-o-fim)
          - [**Verso 26 - "E depois das sessenta e duas semanas será cortado o Messias, mas não para si mesmo"**](#verso-26-e-depois-das-sessenta-e-duas-semanas-será-cortado-o-messias-mas-não-para-si-mesmo)
          - [**"... e o povo do príncipe, que há de vir, destruirá a cidade e o santuário"**](#-e-o-povo-do-príncipe-que-há-de-vir-destruirá-a-cidade-e-o-santuário)
          - [**"... e o seu fim será com uma inundação; e até ao fim haverá guerra; estão determinadas as assolações"**](#-e-o-seu-fim-será-com-uma-inundação-e-até-ao-fim-haverá-guerra-estão-determinadas-as-assolações)
@@ -156,118 +164,123 @@
          - [**"... e sobre a asa das abominações virá o assolador"**](#-e-sobre-a-asa-das-abominações-virá-o-assolador)
          - [**"... e isso até à consumação; e o que está determinado será derramado sobre o assolador"**](#-e-isso-até-à-consumação-e-o-que-está-determinado-será-derramado-sobre-o-assolador)
          - [Conclusão](#conclusão)
-      - [Acontecimentos literais](#acontecimentos-literais)
-      - [Para os que sabem](#para-os-que-sabem)
-      - [Dízimo ](#dízimo)
-      - [O anti-cristo](#o-anti-cristo)
-      - [Deus além do Universo](#deus-além-do-universo)
-      - [Coincidências](#coincidências)
-      - [Contagem de anos](#contagem-de-anos)
-      - [Ezequiel ](#ezequiel)
-      - [Profecia a se cumprir](#profecia-a-se-cumprir)
-      - [Deus é](#deus-é)
-      - [Calmaria antes do FIM](#calmaria-antes-do-fim)
-      - [O Fim](#o-fim)
-      - [Israel](#israel)
-      - [Senhores da escravidão](#senhores-da-escravidão)
-      - [Falsos Profetas](#falsos-profetas)
-      - [Apocalipse](#apocalipse)
-      - [Revelação ](#revelação)
-      - [Sobre arrebatamento](#sobre-arrebatamento)
-      - [Conversa Jesus e o Diabo](#conversa-jesus-e-o-diabo)
-      - [Para o Diabo](#para-o-diabo)
-      - [Para os fieis do mundo](#para-os-fieis-do-mundo)
-      - [Para mim](#para-mim)
-      - [Renascimento da Igreja Católica ](#renascimento-da-igreja-católica)
-      - [Livros de Teologia](#livros-de-teologia)
+      + [Acontecimentos literais](#acontecimentos-literais)
+      + [Para os que sabem](#para-os-que-sabem)
+      + [Dízimo ](#dízimo)
+      + [O anti-cristo](#o-anti-cristo)
+      + [Deus além do Universo](#deus-além-do-universo)
+      + [Coincidências](#coincidências)
+      + [Contagem de anos](#contagem-de-anos)
+      + [Ezequiel ](#ezequiel)
+      + [Profecia a se cumprir](#profecia-a-se-cumprir)
+      + [Deus é](#deus-é)
+      + [Calmaria antes do FIM](#calmaria-antes-do-fim)
+      + [O Fim](#o-fim)
+      + [Israel](#israel)
+      + [Senhores da escravidão](#senhores-da-escravidão)
+      + [Falsos Profetas](#falsos-profetas)
+      + [Apocalipse](#apocalipse)
+      + [Revelação ](#revelação)
+      + [Sobre arrebatamento](#sobre-arrebatamento)
+      + [Conversa Jesus e o Diabo](#conversa-jesus-e-o-diabo)
+      + [Para o Diabo](#para-o-diabo)
+      + [Para os fieis do mundo](#para-os-fieis-do-mundo)
+      + [Para mim](#para-mim)
+      + [Renascimento da Igreja Católica ](#renascimento-da-igreja-católica)
+      + [Livros de Teologia](#livros-de-teologia)
          - [Paraíso Perdido](#paraíso-perdido)
          - [Paraíso reconquistado](#paraíso-reconquistado)
-      - [História por detrás da Bíblia e da Igreja- Escritos de Tertuliano e Eusébio](#história-por-detrás-da-bíblia-e-da-igreja-escritos-de-tertuliano-e-eusébio)
-      - [Inquisição da Igreja Católica](#inquisição-da-igreja-católica)
-      - [Indulgências](#indulgências)
-      - [Protestar contra a Igreja](#protestar-contra-a-igreja)
-      - [Heresia](#heresia)
-      - [Alerta ou crítica ao protestantismo](#alerta-ou-crítica-ao-protestantismo)
-      - [Do porque talvez Martinho Lutero esteja no inferno](#do-porque-talvez-martinho-lutero-esteja-no-inferno)
-      - [Solo Escritura e Sola Fé](#solo-escritura-e-sola-fé)
-      - [Alerta ou crítica ao misticismo, Espiritualismo, Budismo e demais práticas religiosas](#alerta-ou-crítica-ao-misticismo-espiritualismo-budismo-e-demais-práticas-religiosas)
-      - [Palestina - Jerusalém](#palestina-jerusalém)
-      - [Erro de membros da Igreja Católica](#erro-de-membros-da-igreja-católica)
-      - [Igreja x Corpo da Igreja x Abandono](#igreja-x-corpo-da-igreja-x-abandono)
-      - [Origem do Brasil e Portugal - Dom Afonso Henriques, primeiro rei de Portugal](#origem-do-brasil-e-portugal-dom-afonso-henriques-primeiro-rei-de-portugal)
-      - [Monarquia](#monarquia)
-      - [Período Imperial do Brasil](#período-imperial-do-brasil)
-      - [Subsidiariedade](#subsidiariedade)
-      - [Mudança de profissão na Subsidiariedade](#mudança-de-profissão-na-subsidiariedade)
-      - [Revolução Industrial ](#revolução-industrial)
-      - [Democracia ](#democracia)
-      - [Socialismo ou Comunismo](#socialismo-ou-comunismo)
-      - [Política](#política)
-      - [Brasil Império D. Pedro x Barão de Mauá](#brasil-império-d-pedro-x-barão-de-mauá)
-      - [Dúvidas sobre Dom Pedro I e II](#dúvidas-sobre-dom-pedro-i-e-ii)
-      - [Transferência internacional de ouro](#transferência-internacional-de-ouro)
-      - [Devedores Juros](#devedores-juros)
-      - [Virgem Maria](#virgem-maria)
-      - [Santa Gema Galgani](#santa-gema-galgani)
-      - [São Francisco de Assis](#são-francisco-de-assis)
-      - [Crucifixo Franciscano](#crucifixo-franciscano)
-      - [Padre Pio](#padre-pio)
+      + [História por detrás da Bíblia e da Igreja- Escritos de Tertuliano e Eusébio](#história-por-detrás-da-bíblia-e-da-igreja-escritos-de-tertuliano-e-eusébio)
+      + [Inquisição da Igreja Católica](#inquisição-da-igreja-católica)
+      + [Indulgências](#indulgências)
+      + [Protestar contra a Igreja](#protestar-contra-a-igreja)
+      + [Heresia](#heresia)
+      + [Alerta ou crítica ao protestantismo](#alerta-ou-crítica-ao-protestantismo)
+      + [Do porque talvez Martinho Lutero esteja no inferno](#do-porque-talvez-martinho-lutero-esteja-no-inferno)
+      + [Solo Escritura e Sola Fé](#solo-escritura-e-sola-fé)
+      + [Alerta ou crítica ao misticismo, Espiritualismo, Budismo e demais práticas religiosas](#alerta-ou-crítica-ao-misticismo-espiritualismo-budismo-e-demais-práticas-religiosas)
+      + [Palestina - Jerusalém](#palestina-jerusalém)
+      + [Erro de membros da Igreja Católica](#erro-de-membros-da-igreja-católica)
+      + [Igreja x Corpo da Igreja x Abandono](#igreja-x-corpo-da-igreja-x-abandono)
+      + [Origem do Brasil e Portugal - Dom Afonso Henriques, primeiro rei de Portugal](#origem-do-brasil-e-portugal-dom-afonso-henriques-primeiro-rei-de-portugal)
+      + [Monarquia](#monarquia)
+      + [Período Imperial do Brasil](#período-imperial-do-brasil)
+      + [Subsidiariedade](#subsidiariedade)
+      + [Mudança de profissão na Subsidiariedade](#mudança-de-profissão-na-subsidiariedade)
+      + [Cargos: Nepotismo x Justiça x Meritocracia](#cargos-nepotismo-x-justiça-x-meritocracia)
+      + [Revolução Industrial ](#revolução-industrial)
+      + [Democracia ](#democracia)
+      + [Socialismo ou Comunismo](#socialismo-ou-comunismo)
+      + [Engano de Satanás](#engano-de-satanás)
+      + [Política](#política)
+      + [Leis](#leis)
+      + [Guerra](#guerra)
+      + [Brasil Império D. Pedro x Barão de Mauá](#brasil-império-d-pedro-x-barão-de-mauá)
+      + [Dúvidas sobre Dom Pedro I e II](#dúvidas-sobre-dom-pedro-i-e-ii)
+      + [Transferência internacional de ouro](#transferência-internacional-de-ouro)
+      + [Devedores Juros](#devedores-juros)
+      + [Fraude Econômica Legalizada](#fraude-econômica-legalizada)
+      + [Virgem Maria](#virgem-maria)
+      + [Santa Gema Galgani](#santa-gema-galgani)
+      + [São Francisco de Assis](#são-francisco-de-assis)
+      + [Crucifixo Franciscano](#crucifixo-franciscano)
+      + [Padre Pio](#padre-pio)
          - [1. **Visões Místicas e Espirituais:**](#1-visões-místicas-e-espirituais)
          - [2. **Bilocação:**](#2-bilocação)
             * [Exemplos de Bilocação:](#exemplos-de-bilocação)
          - [3. **O Dom da Leitura de Almas:**](#3-o-dom-da-leitura-de-almas)
          - [4. **A Interação com os Anjos:**](#4-a-interação-com-os-anjos)
          - [Conclusão:](#conclusão-1)
-      - [São Cipriano de Antióquia](#são-cipriano-de-antióquia)
+      + [São Cipriano de Antióquia](#são-cipriano-de-antióquia)
          - [Orações a São Cipriano: Inimigos bem longe!](#orações-a-são-cipriano-inimigos-bem-longe)
-      - [São João Vianney](#são-joão-vianney)
-      - [Santa Teresinha](#santa-teresinha)
-      - [Santo Expedito ](#santo-expedito)
-      - [Oração a São Miguel](#oração-a-são-miguel)
-      - [Oração de São Francisco de Assis](#oração-de-são-francisco-de-assis)
-      - [Oração personalizada de Anderson - diária](#oração-personalizada-de-anderson-diária)
-      - [Oração personalizada de Anderson - minhas misérias](#oração-personalizada-de-anderson-minhas-misérias)
-      - [Música](#música)
+      + [São João Vianney](#são-joão-vianney)
+      + [Santa Teresinha](#santa-teresinha)
+      + [Santo Expedito ](#santo-expedito)
+      + [Oração a São Miguel](#oração-a-são-miguel)
+      + [Oração de São Francisco de Assis](#oração-de-são-francisco-de-assis)
+      + [Oração personalizada de Anderson - diária](#oração-personalizada-de-anderson-diária)
+      + [Oração personalizada de Anderson - minhas misérias](#oração-personalizada-de-anderson-minhas-misérias)
+      + [Música](#música)
          - [Reflexões da música](#reflexões-da-música)
          - ["1 Hour relaxing PIANO" e "10 Pieces by Ludovico Einaudi \\ Relaxing Piano"](#1-hour-relaxing-piano-e-10-pieces-by-ludovico-einaudi-relaxing-piano)
          - [Te amarei, senhor](#te-amarei-senhor)
-      - [Medicina natural](#medicina-natural)
+      + [Medicina natural](#medicina-natural)
          - [Lavagem](#lavagem)
          - [Óleos vegetais](#óleos-vegetais)
-      - [Física](#física)
+      + [Física](#física)
          - [Criação do universo](#criação-do-universo)
-      - [Física Quântica](#física-quântica)
-      - [Masaru Emoto](#masaru-emoto)
-      - [Biologia ](#biologia)
-      - [Luz](#luz)
-      - [Busca por conhecimento](#busca-por-conhecimento)
-      - [Buracos Negros](#buracos-negros)
-      - [Equação Anti-Vida](#equação-anti-vida)
-      - [Quando se começa o impulso nervoso](#quando-se-começa-o-impulso-nervoso)
-      - [Deus está nas nossas cabeças](#deus-está-nas-nossas-cabeças)
-      - [O evangelho de Tomé](#o-evangelho-de-tomé)
-      - [Cristianismo Etíope](#cristianismo-etíope)
-      - [Resposta ChatGPT para o Nome Thomas Anderson:](#resposta-chatgpt-para-o-nome-thomas-anderson)
-      - [Ligação de Enoque com a figura de Thomas Anderson:](#ligação-de-enoque-com-a-figura-de-thomas-anderson)
+      + [Física Quântica](#física-quântica)
+      + [Masaru Emoto](#masaru-emoto)
+      + [Biologia ](#biologia)
+      + [Luz](#luz)
+      + [Busca por conhecimento](#busca-por-conhecimento)
+      + [Buracos Negros](#buracos-negros)
+      + [Equação Anti-Vida](#equação-anti-vida)
+      + [Quando se começa o impulso nervoso](#quando-se-começa-o-impulso-nervoso)
+      + [Deus está nas nossas cabeças](#deus-está-nas-nossas-cabeças)
+      + [O evangelho de Tomé](#o-evangelho-de-tomé)
+      + [Cristianismo Etíope](#cristianismo-etíope)
+      + [Resposta ChatGPT para o Nome Thomas Anderson:](#resposta-chatgpt-para-o-nome-thomas-anderson)
+      + [Ligação de Enoque com a figura de Thomas Anderson:](#ligação-de-enoque-com-a-figura-de-thomas-anderson)
          - [Comparação com **Thomas Anderson** / **Neo**:](#comparação-com-thomas-anderson-neo)
          - [Conclusão:](#conclusão-2)
-      - [Ligação Enoque x Thomas Anderson x Agent Smith](#ligação-enoque-x-thomas-anderson-x-agent-smith)
+      + [Ligação Enoque x Thomas Anderson x Agent Smith](#ligação-enoque-x-thomas-anderson-x-agent-smith)
          - [A Dualidade e a Relação entre **Neo** e **Agent Smith**:](#a-dualidade-e-a-relação-entre-neo-e-agent-smith)
          - [Comparando **Agent Smith** com Enoque:](#comparando-agent-smith-com-enoque)
          - [Conclusão:](#conclusão-3)
-      - [Oráculo x Igreja](#oráculo-x-igreja)
+      + [Oráculo x Igreja](#oráculo-x-igreja)
          - [O Papel do Oráculo em *Matrix*:](#o-papel-do-oráculo-em-matrix)
          - [O Conceito de "Oráculo" no Cristianismo Etíope:](#o-conceito-de-oráculo-no-cristianismo-etíope)
          - [Comparando a Igreja Etíope com o Oráculo em *Matrix*:](#comparando-a-igreja-etíope-com-o-oráculo-em-matrix)
          - [Conclusão:](#conclusão-4)
-      - [Pensamento negativista:](#pensamento-negativista)
-      - [Reflexões sobre Anéis de Poder](#reflexões-sobre-anéis-de-poder)
-      - [Reflexão do "homem que não vendeu sua alma"](#reflexão-do-homem-que-não-vendeu-sua-alma)
+      + [Pensamento negativista:](#pensamento-negativista)
+      + [Reflexões sobre Anéis de Poder](#reflexões-sobre-anéis-de-poder)
+      + [Reflexão do "homem que não vendeu sua alma"](#reflexão-do-homem-que-não-vendeu-sua-alma)
    * [Monte Sinai](#monte-sinai)
-      - [Para mim no dia 11/10/2024 em "O INFORMANTE"](#para-mim-no-dia-11102024-em-o-informante)
-      - [Divisão](#divisão)
-      - [Descendente de Enoque](#descendente-de-enoque)
-      - [1 Enoque](#1-enoque)
+      + [Para mim no dia 11/10/2024 em "O INFORMANTE"](#para-mim-no-dia-11102024-em-o-informante)
+      + [Divisão](#divisão)
+      + [Descendente de Enoque](#descendente-de-enoque)
+      + [1 Enoque](#1-enoque)
          - [Livro dos Vigilantes ](#livro-dos-vigilantes)
          - [Livro das parábolas ](#livro-das-parábolas)
          - [Livro dos Luminares](#livro-dos-luminares)
@@ -275,36 +288,35 @@
          - [Epístola de Enoque](#epístola-de-enoque)
          - [Nascimento de Noé](#nascimento-de-noé)
          - [Final do Livro de Enoque](#final-do-livro-de-enoque)
-      - [Livro 2 Enoque](#livro-2-enoque)
-      - [Livro 3 Enoque](#livro-3-enoque)
-      - [Signos](#signos)
-      - [Djavu](#djavu)
-      - [A queda](#a-queda)
-      - [Relação com a sociedade](#relação-com-a-sociedade)
-      - [Porque acreditar em Deus ?](#porque-acreditar-em-deus-)
-      - [Pessoal demais](#pessoal-demais)
-      - [A inabalável fé](#a-inabalável-fé)
-      - [Minha Cruz](#minha-cruz)
-      - [Energias e vibrações](#energias-e-vibrações)
-      - [Antigo EU](#antigo-eu)
-      - [Reflexões sociais](#reflexões-sociais)
-      - [Emoções e suas raízes](#emoções-e-suas-raízes)
-      - [O medo é Brutal](#o-medo-é-brutal)
-      - [Anotações extras das emoções](#anotações-extras-das-emoções)
-      - [Minhas choradeiras](#minhas-choradeiras)
-      - [Orientações e reflexões de Batalha Espiritual](#orientações-e-reflexões-de-batalha-espiritual)
-      - [Neutralidade](#neutralidade)
-      - [Minha decisão ](#minha-decisão)
-      - [Não esquecer](#não-esquecer)
-      - [No fim a minha escolha](#no-fim-a-minha-escolha)
-      - [Predestinação ](#predestinação)
+      + [Livro 2 Enoque](#livro-2-enoque)
+      + [Livro 3 Enoque](#livro-3-enoque)
+      + [Signos](#signos)
+      + [Djavu](#djavu)
+      + [A queda](#a-queda)
+      + [Relação com a sociedade](#relação-com-a-sociedade)
+      + [Porque acreditar em Deus ?](#porque-acreditar-em-deus-)
+      + [Pessoal demais](#pessoal-demais)
+      + [A inabalável fé](#a-inabalável-fé)
+      + [Minha Cruz](#minha-cruz)
+      + [Energias e vibrações](#energias-e-vibrações)
+      + [Antigo EU](#antigo-eu)
+      + [Reflexões sociais](#reflexões-sociais)
+      + [Emoções e suas raízes](#emoções-e-suas-raízes)
+      + [O medo é Brutal](#o-medo-é-brutal)
+      + [Anotações extras das emoções](#anotações-extras-das-emoções)
+      + [Minhas choradeiras](#minhas-choradeiras)
+      + [Orientações e reflexões de Batalha Espiritual](#orientações-e-reflexões-de-batalha-espiritual)
+      + [Neutralidade](#neutralidade)
+      + [Minha decisão ](#minha-decisão)
+      + [Não esquecer](#não-esquecer)
+      + [No fim a minha escolha](#no-fim-a-minha-escolha)
+      + [Predestinação ](#predestinação)
    * [Final Livro](#final-livro)
 
 <!-- TOC end -->
 
 <!-- TOC --><a name="título-a-irracionalidade-da-razão-eou-a-razão-da-irracionalidade"></a>
 ## Título: A irracionalidade da razão e/ou A razão da irracionalidade
-
 
 Resumo: quem entender o título que me fale, pois nem eu mesmo sabia o significado no dia que me veio a cabeça. Mas os textos aqui escritos são para trazer uma luz mediante a razão ou irracionalidade da vida.
 
@@ -625,7 +637,11 @@ João 8
 43. Por que não entendeis a minha linguagem? Por não poderdes ouvir a minha palavra.
 44. Vós tendes por pai ao diabo, e quereis satisfazer os desejos de vosso pai. Ele foi homicida desde o princípio, e não se firmou na verdade, porque não há verdade nele. Quando ele profere mentira, fala do que lhe é próprio, porque é mentiroso, e pai da mentira.
 
-- Sempre podemos dizer que estamos bem, pois muitas vezes temos saúde (o que alguns não tem), por termos comida e dinheiro (o que alguns também não tem). Mas a maior mentira que você pode dizer para si mesmo é que está bem de Espírito, quando evidentemente você está mergulhado nas vaidades do mundo, nos medo, nas angústias, raivas e ansiedades do mundo. Estará bem de Espírito quando o Espírito Santo habitar em você, e então você não mais ter medo, Tristeza, raiva egoísta, ódio ou desprezo , mas sim humildade, alegria, esperança, paciência e Amor. Podemos mentir para todo mundo mas não podemos mentir para nosso próprio coração.
+- Sempre podemos dizer que estamos bem, pois muitas vezes temos saúde (o que alguns não tem), por termos comida e dinheiro (o que alguns também não tem). Mas a maior mentira que você pode dizer para si mesmo é que está bem de Espírito, quando evidentemente você está mergulhado nas vaidades do mundo, nos medo, nas angústias, raivas e ansiedades do mundo. Estará bem de Espírito quando o Espírito Santo habitar em você, e então você não mais ter medo, Tristeza, raiva egoísta, ódio ou desprezo , mas sim humildade, alegria, esperança, paciência e Amor.
+
+- Sempre podemos dizer que estamos bem, pois muitas vezes temos saúde (o que alguns não tem), por termos comida e dinheiro (o que alguns também não tem). Mas a maior mentira que você pode dizer para si mesmo é que está bem de Espírito, quando evidentemente você está mergulhado nas vaidades do mundo, nos medo, nas angústias, raivas e ansiedades do mundo. Estará bem de Espírito quando o Espírito Santo habitar em você, e então você não mais ter medo, Tristeza, raiva egoísta, ódio ou desprezo , mas sim humildade, alegria, esperança, paciência e Amor.
+
+- Podemos mentir para todo mundo e até para nós mesmos através de justificativas e explicações, mas não conseguimos mentir para nosso próprio coração.
 
 <!-- TOC --><a name="trevas"></a>
 #### Trevas
@@ -786,17 +802,17 @@ Romanos 13
 
 - Amar de verdade para ver aquele belo sorriso no rosto do próximo, independente do que aconteça com você.
 
-- O amor não pratica a caridade para se auto elevar/glorificar.
+- O Amor não pratica a caridade para se auto elevar/glorificar.
 
-- O amor não se irrita no ódio, mas si irrita e é fervoroso na justiça ao próximo e principalmente em defesa do Espiríto Santo de Deus com palarvas de verdade.
+- O Amor não se irrita no ódio, mas si irrita e é fervoroso na justiça ao próximo e principalmente em defesa do Espírito Santo de Deus com palavras de verdade.
 
-- O amor não suspeita maldade do outro.
+- O Amor não suspeita maldade do outro.
 
 - O Amor respeita a verdade mas não respeita as mentiras, falsidades ou egoísmos.
 
-- O amor apenas se doa para servir a Deus e ao próximo mesmo que seja amargo.
+- O Amor apenas se doa para servir a Deus e ao próximo mesmo que seja amargo.
 
-- Amar não despreza e nem fica no comodismo do fácil, o amor não abandona, o amor luta, o amor discute mesmo que seja uma luta amarga.
+- O Amor não despreza e nem fica no comodismo do fácil, o amor não abandona, o amor luta, o amor discute mesmo que seja uma luta amarga.
 
 Vídeo: o Amor é o caminho
 https://youtu.be/Myj1ZCDgcHI?si=O2q_DVGWjM1rIRdD
@@ -911,6 +927,17 @@ Mateus 10:39 "Quem achar a sua vida perdê-la-á; e quem perder a sua vida, por 
 
 - O próximo não deve ser tido como um cônjuge, pois o cônjuge não é o próximo, mas a mesma carne, e não deve existir segredos no casamento, pois segredos, mentiras e manipulações em um casamento é o caminho para as trevas, por mais que seja com boas intenções, a exemplo de festas surpresas.
 
+- Não se deve ajudar pessoas na compra de remédios industriais. Pois a doença na carne é castigo para purificação da alma. Os remédios são oração, penitência, arrependimento, e no máximo ervas naturais medicinais.
+
+<!-- TOC --><a name="afastamento-de-um-teimoso"></a>
+#### Afastamento de um teimoso
+
+- Sempre que for se afastar ou cortar os laços com alguém chame para uma conversa e diga o porque, não faça simplesmente sumir sem dizer os motivos de porque. Antes disso tente levar a pessoa para Deus, para a Eucaristia, se ela se recusa, se continua no erro, se continua  na Luxúria, gula, preguiça, inveja/cobiça, Avareza/Ganância, Soberba/Orgulho, Ira, e o pai de todas desgraça a Mentira, se continua fazendo tudo de errado sem evolução ou estacionado onde melhorou sem querer continuar, então não foi você que abandonou a pessoa mas a pessoa que lhe abandonou na caminhada, pois seu primeiro Amor é Deus.
+
+- É preciso saber identificar quando deixou de ser ajuda e passou a ser mimo, e isso acontece quando o lado ajudado ficou acomodado e não mais evolui em Cristo, não é sobre evolução profissional ou de relacionamento, maturidade superficiais/carnais, mas sim de evolução de intimidade com Deus.
+
+- A intrigante palavra desapego, como a mesma pode ser usado para o bem e para o mal. Um desapego das coisas mundanas, dos prazeres momentâneos, do dinheiro, dos prazeres da carne, dos desejos, das carências afetivas, da inveja, esse desapego não parece ser ruim. Mas desapego que gera abandono, que gera desistência, do cansaço, que fazem pessoas pedirem divórcio, de promessas serem quebradas, inclusive a Deus, de trilharem o caminho do egoísmo, de quem foge com medo pois procura a felicidade, não em Cristo, mas em algo do mundo que não sabe o que eh, o medo nunca é de alguém que está em Deus.
+
 <!-- TOC --><a name="se-sacrificar-pelo-próximo"></a>
 #### Se sacrificar pelo próximo
 
@@ -937,18 +964,32 @@ Lucas 17
 4. E, se pecar contra ti sete vezes no dia, e sete vezes no dia vier ter contigo, dizendo: Arrependo-me; perdoa-lhe.
 
 - Matar é certo ou errado? Roubar é certo ou errado ? Já não julgaste aqui ? Mas podes dizer assim, mas fulano roubou por tal motivo, compreendendo então as circunstâncias que podem levar alguém ao desespero de roubar, mas o ato por si continua sendo um erro, mas não será eu que irei condenar a pessoa, nem talvez a julgar a pessoa, mas apenas o ato por si só.
+
 - Julgar o ato como errado é válido, julgar a pessoa e ousar condená-la é imprudente e presunçoso. Mas o aviso sobre pecados mortais(matar, adultério, etc) que corrompem a alma são necessários para evitar que almas se percam no inferno.
+
 - Quando você olha para alguém e apenas julga para fofocar, causar intriga e falar mal, nada de bom vem nisso.
-- Quando você apenas cuida da sua vida sem olhar a do próximo já é uma evolução, muito melhor do que julgar e falar mal. Mas se tu se incomodas com as pessoas que julgam e falam, TALVEZ seja porque tu fazes algo que teu coração sabe que é errado, porque se não, quando se fizeres o bem, não sentirás nenhuma aflição em ser julgado erroneamente.
-- Mas quando você para de olhar para apenas seu umbigo, e passa a olhar para o próximo, não no sentido de julga-lo, mas ajuda-lo, perguntando como esta, se precisa de algo, aí você estará não apenas julgando que a pessoa precisa de ajuda, mas também se disponibilizando a ajudar.
+
+- Quando você apenas cuida da sua vida sem olhar a do próximo já é uma evolução, muito melhor do que julgar e falar mal.
+
+- Mas quando você para de olhar para apenas seu umbigo, e passa a olhar para o próximo, não no sentido de julga-lo para diminuir, mas ajuda-lo a si corrigir, perguntando como esta, se precisa de algo, aí você estará não apenas julgando que a pessoa precisa de ajuda, mas também se disponibilizando a ajudar.
+
+- Mas se tu se incomodas com as pessoas que julgam e falam, TALVEZ seja porque tu fazes algo que teu coração sabe que é errado, porque se não, quando se fizeres o bem, não sentirás nenhuma aflição em ser julgado erroneamente.
+
+- Se lhe ofenderem ao julgarem você verdadeiramente não existe razões para você ficar chateado, você tem mais é que assumir quando é miserável e esta em falta com Deus. Mas se lhe julgaram mal ou erroneamente também não existe motivos para se ofender quando você sabe que é mentira, não é aos homens que devemos procurar reconhecimento, mas sim de Deus.
+
+- Ao ser julgado não adianta se justificar com base nos pecados do acusador, pois sua régua de medida não deve ser o pecador(Diabo) mas sim Jesus Cristo. Se sua régua de medida é o Diabo então você não é filho de Deus mas do Diabo
 
 - Para julgar o que habita no coração do próximo saiba, que seja bem ou mal também pode ser passageiro, pois depende da escolha do indivíduo, um dia pode habitar o bem, e no outro dia o mal e nem mais lembrar das boas intenções que tinha, e vice-versa. Independente do que habita no coração do próximo, no seu só deve habitar alegria, esperança e paz, as bases do Amor, nunca medo, tristeza, raiva egoísta, angústias, ódio.
 
+- Aqueles que julgam conforme a carne, apenas vê nos outros o reflexo de si mesmo.
+
 - A condenação nem é feita por Deus, mas pelo próprio homem que se auto condena em seu orgulho e egoísmo ao invés de escolher a misericórdia de Deus que exige que você largue tudo por Amor ao pai, pois para ter a misericórdia é preciso amar a Deus sobre todas as coisas.
 
-- Amar o próximo é deixar ir. É ser grato a Deus pelos momentos e tempos que teve com aquela pessoa, e de forma ordeira aceitar que a mesma se foi e que você não venha a se perder na busca incessante por felicidade nos prazeres de si mesmos.
+- Amar o próximo é deixar ir, ou pelo menos não forçar as pessoas a escolherem, não quer dizer também que você deve abandonar ou se fechar. Amar o próximo é deixar ir, mas estar sempre de braços abertos oferecendo o perdão, sem ressentimento ou mágoa. É ser grato a Deus pelos momentos e tempos que teve com aquela pessoa, e de forma ordeira aceitar que a mesma se foi e que você não venha a se perder na busca incessante por felicidade nos prazeres de si mesmo, pois seu primeiro Amor é Deus.
 
 - Amar o próximo não pode ser algo do tipo "é a razão da minha vida", entendo que alguns podem dizer por força de expressão, mas devem todos se vigiar se por acaso profundamente não é uma verdade, pois se for, a sua alma ficará atormentada quando ver o outro partir ou sequer cogitar algo do tipo, pois o seu maior Amor deve ser Deus, não por egoísmo de Deus, mas porque é ele de fato a razão de tudo e o calmante da alma, e esse Deus que você pode achar egoísta, apenas não quer ver você sofrer (olha só o quanto ele lhe ama).
+
+- Amar o próximo é desejar tanto bem ao outro, que o próximo ame primeiro a Deus antes de qualquer coisa, pois Deus nunca falha, às vezes apenas em nossas misérias e limitações não compreendemos os mistérios do Amor de Deus.
 
 <!-- TOC --><a name="o-que-fazer-quando-não-estamos-evoluídos-espiritualmente-e-somos-egoístas"></a>
 #### O que fazer quando não estamos evoluídos espiritualmente e somos Egoístas
@@ -1042,6 +1083,8 @@ Apocalipse 3
 
 - Mas não confundir humildade com paciência, pois paciência tem limite, e até no amor existe a dor amarga da dura verdade fervorosa que tem de ser dita por amor a Deus e ao próximo.
 
+- Necessário muitas vezes reconhecer nossas limitações e que precisamos de ajuda, precisamos saber pedir antes de tudo a Deus pois é ele quem decide e com ele já temos tudo pois mesmo que encontremos a morte viveremos pois teremos Deus e o resto é passageiro. Depois disso, ter humildade e dexar o orgulho e vergonha de lado e quando necessário pedir ajuda do próximo quando precisarmos, seja em uma dúvida, auxílio material, humano, ou meramente de conselho, e se nos recusarem a nos ajudar, aceitar sem ressentimento o não. Quando pedirmos ajuda, não deve ser para continuarmos precisando do próximo nos tornando folgados e acomodados, mas para que o mesmo nos ajude a caminhar de forma autônoma agora precisando apenas de Deus.
+
 <!-- TOC --><a name="ignorância"></a>
 #### Ignorância
 
@@ -1071,13 +1114,13 @@ Mateus 5
 
 - Só existe 2 caminhos, ou fazer o bem as pessoas, ou fazer o mal, não é possível ser neutro por muito tempo, pois ao ser neutro o mal irá lhe tentar a puxar você para o lado do mal ao lhe tentar fazer revidar e não oferecer a outra face, mas quando se é caridoso, se oferece a outra face como uma ato de caridade em não revidar.
 
-- Dar a outra face, não no sentido de provocar, mas que mesmo a agressão acontecendo novamente, você não irá se importar. Essa é reflexão é para todos os casos, exceto dentro do casamento, pois dentro do casamento apesar de se poder usar em parte, ela tem de ser usada com  cuidado no casamento, que não são apenas uma carne, mas duas.
+- Dar a outra face, não no sentido de provocar, mas que mesmo a agressão acontecendo novamente, você não irá se importar. Essa é reflexão é para todos os casos, exceto dentro do casamento, pois dentro do casamento apesar de se poder usar em parte, ela tem de ser usada com cuidado no casamento, que não são duas carnes, mas uma.
 
 - Agora tomando como exemplo um homem bom e justo que tinha uma arma e foi ameaçado de assalto por um ladrão. O homem justo reagiu e tirou a vida do ladrão. O mesmo não ofereceu a outra face. Aos olhos superficiais do homem não se pode julga-lo nem condena-lo, pois olhando apenas para o ato em si talvez não haja nada de errado. 
 
 - Pois bem, agora veja um homem bom e justo que juntou dinheiro, e se viu no final do ano seu dinheiro ser roubado, dessa vez não por um ladrão comum e aparente, mas por algo nefasto, sombrio e obscuro que agiu de tal forma que não foi visto. Pois o homem tinha economizado 100 moedas e compraria 10 sacos de feijão, mas agora as 100 moedas não valem mais 10 sacos, e sim 7. O homem bom, talvez aceite com paciência essa primeira ocorrência, talvez trate com naturalidade, e dirá que faz parte, mas um dia, ou esse homem bom ou outro que observa irá dizer, tem algo de errado nisso, trabalhamos e trabalhamos, e nosso dinheiro parece que sempre é roubado. Em verdade seja dita, um dia esse homem irá reagir ao assalto e tomar algo de volta, mas a grande pergunta eh, de quem ele irá tirar ? Nos tempos atuais ao qual eu vivo, a própria sociedade levará a culpa, e como posso eu discordar ? Se por conivência, ignorância, preguiça ou até escolha, a própria sociedade elegeu aqueles que roubam o poder de compra. Como posso eu condenar o homem que agora decide transgredir a lei dos homens e as leis de Deus? Sendo que anteriormente eu não havia condenado aquele que reagiu a um assalto mais descarado. Pois bem, o ciclo de violência que começará assim, depois irá se espalhar de tal forma que ninguém mais saberá distinguir o certo do errado, ou errado do certo.
 
--  Mas em verdade seja dita, na dúvida devemos olhar para nossos corações, verificar se estamos sendo guiados pelo medo, tristeza, raiva egoísta, angústias, pois se estivermos devemos rapidamente mudar os rumos, pois nada de bom vem nisto. E se você parar para pensar o que havia no coração do homem que reagiu ao assalto, é a mesma sensação do homem que se sentiu roubado pela própria sociedade. Ah, mas não justifica. O que os seus olhos não vê o seu coração não sente. Mas quando vires a dor de ambos os irmãos, verá que apesar de circunstâncias diferentes, a dor a mesma.
+- Mas em verdade seja dita, na dúvida devemos olhar para nossos corações, verificar se estamos sendo guiados pelo medo, tristeza, raiva egoísta, angústias, pois se estivermos devemos rapidamente mudar os rumos, pois nada de bom vem nisto. E se você parar para pensar o que havia no coração do homem que reagiu ao assalto, é a mesma sensação do homem que se sentiu roubado pela própria sociedade. Ah, mas não justifica. O que os seus olhos não vê o seu coração não sente. Mas quando vires a dor de ambos os irmãos, verá que apesar de circunstâncias diferentes, a dor a mesma.
 
 <!-- TOC --><a name="perdão-e-ressentimento"></a>
 #### Perdão e ressentimento 
@@ -1119,7 +1162,7 @@ Mateus 10
 14. E, se ninguém vos receber, nem escutar as vossas palavras, saindo daquela casa ou cidade, sacudi o pó dos vossos pés.
 15. Em verdade vos digo que, no dia do juízo, haverá menos rigor para o país de Sodoma e Gomorra do que para aquela cidade.
 
-- "Sacudir o pó" aqui não no sentido de ensoberbece e você se achar melhor que aquelas pessoas, mas no sentido de que você fez o que podia, e precisa agora seguir em frente, sem se desanimar.
+- "Sacudir o pó", aqui não no sentido de ensoberbece-se e você se achar melhor que aquelas pessoas, mas no sentido de que você fez o que podia, e precisa agora seguir em frente, sem se desanimar.
 
 Mateus 10
 
@@ -1255,7 +1298,7 @@ No final vai estar o seguinte:
 
 - Para um Niilista que não faz questão de nada, talvez um excesso de coincidências para fazer acontecer acreditar em algo maior. Aqui só intervenção divina mesmo.
 
-- Um niilista não vai estar na luz, pois por mais que aparente uma paz e serenidade, mas na verdade é a tristeza, a ausência de alegria e esperança, a ausência da luz, a ausência do Amor, condenando a se mesmo a profunda depressão da alma.
+- Um niilista não vai estar na luz, pois por mais que aparente uma paz e serenidade, mas na verdade é a tristeza, a ausência de alegria e esperança, a ausência da luz, a ausência do Amor, condenando a si mesmo à profunda depressão da alma.
 
 <!-- TOC --><a name="velho-x-novo-testamento"></a>
 #### Velho x Novo Testamento
@@ -1321,11 +1364,11 @@ https://youtu.be/k15GZ6Of0Ho?si=IWR1G02z4yeD0nzT
 <!-- TOC --><a name="sociedade-e-juventude"></a>
 #### Sociedade e juventude
 
-- O ensino fundamental e médio tem sua importância, mas qual jovem consegue assimilar já na sua pré-adolescência, adolescência a importância de uma revolução francesa nos tempos contemporâneos e como moldou a sociedade ? Olhando para a sociedade, realmente se obteve alguma utilidade desse conhecimento passado prematuramente ? Dos 10 aos 17 anos, só queremos passar de ano e nos divertir, e pouco nos importamos com o conhecimento, apenas decoramos para passar de ano ou no vestibular, não aprendemos de fato, não queremos aprender de fato. Uma coisa é focar em português e matemática que são a base de lógica (português mais ou menos), já geografia, história e ciências são importantes de forma macro, não tem a necessidade de exigir detalhes ao adolescentes que não tem de fato o interesse de aprender, e nem sabe a profissão que vai fazer no resto da vida. Na adolescência, poderia se ensinar o básico das ciências, deixar as crianças se divertirem, e fazer um pouco de trabalho doméstico ou já pensando em auxiliar os pais em uma profissão, mas PRINCIPALMENTE focar em ensinar valores morais, éticos, detalhar pecados capitais, falar de Cristo. O país tende a ir pro abismo, jovens frustrados, vendo que estão sendo levados para um futuro que eles não escolheram, com promessas de riqueza e futuro se tiverem um diploma, não me admira que muitos se deixem levar pelas vaidades e luxúria e prefiram agora ganhar dinheiro fazendo vídeos no YouTube ou Instagram, apostas esportivas, jogos do tigrinho, Tráfico de drogas, assaltos, ganhar likes, ou sendo "famosos", e sempre em drogas e bebidas. OBS.: Beber em comemoração não é ruim, mas como rotina para alívio das mazelas da vida é um problema.
+- O ensino fundamental e médio tem sua importância, mas qual jovem consegue assimilar já na sua pré-adolescência, adolescência a importância de uma revolução francesa nos tempos contemporâneos e como moldou a sociedade ? Olhando para a sociedade, realmente se obteve alguma utilidade desse conhecimento passado prematuramente ? Dos 10 aos 17 anos, só queremos passar de ano e nos divertir, e pouco nos importamos com o conhecimento, apenas decoramos para passar de ano ou no vestibular, não aprendemos de fato, não queremos aprender de fato. Uma coisa é focar em português e matemática que são a base de lógica (português mais ou menos), já geografia, história e ciências são importantes de forma macro, não tem a necessidade de exigir detalhes ao adolescentes que não tem de fato o interesse de aprender, e nem sabe a profissão que vai fazer no resto da vida. Na adolescência, poderia se ensinar o básico das ciências, deixar as crianças se divertirem, e fazer um pouco de trabalho doméstico ou já pensando em auxiliar os pais em uma profissão aprendendo teoria e prática, mas PRINCIPALMENTE focar em ensinar valores morais, éticos, detalhar pecados capitais, falar de Cristo. O país tende a ir pro abismo, jovens frustrados, vendo que estão sendo levados para um futuro que eles não escolheram, com promessas de riqueza e futuro se tiverem um diploma, não me admira que muitos se deixem levar pelas vaidades e luxúria e prefiram agora ganhar dinheiro fazendo vídeos no YouTube ou Instagram, apostas esportivas, jogos do tigrinho, Tráfico de drogas, assaltos, ganhar likes, ou sendo "famosos", e sempre em drogas e bebidas. OBS.: Beber em comemoração não é ruim, mas como rotina para alívio das mazelas da vida é um problema.
 
-- Com exceção do ensino fundamental, o ensino médio não deveria de fato ser um reprovador, o estudante deveria frequentar principalmente para adquirir conhecimento conforme seu interesse, vontade e disciplina, e fazer as provas se tiver vontade e condições, mas a emissão do diploma ou de qualquer comprovante de frequência só pode ser feita para aqueles que atingiram a nota satisfatória. 
+- Com exceção do ensino fundamental, o ensino médio não deveria de fato ser um reprovador, o estudante deveria frequentar principalmente para adquirir conhecimento conforme seu interesse, vontade e disciplina, e fazer as provas se tiver vontade e condições, mas a emissão do diploma ou de qualquer comprovante de frequência só pode ser feita para aqueles que atingiram a nota satisfatória. O ensino deve não ser apenas teórico mas prático principalmente a partir adolescência.
 
-- O ingresso na faculdade, ou nas escolas mais concorridas, devem naturalmente exigir uma filtragem com base em uma avaliação. Idealmente proponho uma avaliação de teste de QI de raciocínio lógico, Enfatizo que seja de raciocínio lógico e não de conhecimento, e um outro sim um teste de Português e matemática. A moralidade e os valores Cristãos não deveriam ser impostos como filtro, pois faria com que o aprendizado da moralidade e dos valores Cristãos não fossem genuínos de coração, mas sim para interesses de crescimento pessoal.
+- O ingresso na faculdade, ou nas escolas mais concorridas, devem naturalmente exigir uma filtragem com base em uma avaliação. Idealmente proponho uma avaliação de teste de QI de raciocínio lógico, Enfatizo que seja de raciocínio lógico e não de conhecimento, e em um outro sim um teste de Português e matemática. A moralidade e os valores Cristãos não deveriam ser impostos como filtro, pois faria com que o aprendizado da moralidade e dos valores Cristãos não fossem genuínos de coração, mas sim para interesses de crescimento pessoal.
 
 <!-- TOC --><a name="notas-avaliativas"></a>
 #### Notas avaliativas
@@ -1343,12 +1386,7 @@ https://youtu.be/k15GZ6Of0Ho?si=IWR1G02z4yeD0nzT
 
 - Entendo que a fofoca é devido a um vazio da necessidade de se divertir, de passar tempo, jogar conversa fora, mas devemos passar o tempo com escolhas saudáveis e não com coisas ardilosas que podem machucar nossos irmãos.
 
-- Muitos fofocam, julgam, mas quando o contrário acontece, não gostam de serem julgados, não gostam de terem seus tetos de vidros expostos, preferem fugir, fingir demência, evitar as conversas difíceis necessárias para uma auto reflexão e evolução de si mesmos, como crianças mimadas e orgulhosas fogem das suas próprias responsabilidades, dizem que os outros fazem igual como desculpa para permanecer no erro, e eu lhe digo, caráter é fazer o correto, mesmo que não façam o correto com você. Energia ruim atrai coisa ruim, passam uma vida toda sendo guiados pelo medo, fugindo da verdade, se escondendo atrás das mentiras que dizem, não para os outros, mas para si mesmos de que são pessoas boas, mas no fundo são tão podres (o que a Bem de verdade todos nós somos) quanto a qualquer e pior dos assassinos, o problema é a mentira dita para si mesmo, a tentativa de esconder o torpe, sendo arrogantes e orgulhosos, ao invés de compreensível com o Amor para com o próximo.
-
-<!-- TOC --><a name="leis"></a>
-#### Leis
-
-- Não existe leis dos homens, isso é apenas uma ilusão, depois do ato criminoso de assassinato, a lei dos homens não ressuscita o defunto, então não valem de nada e são apenas uma ilusão. Mas a leis de Deus prevalecem sobre a morte.
+- Muitos fofocam, julgam, mas quando o contrário acontece, não gostam de serem julgados, não gostam de terem seus tetos de vidros expostos, preferem fugir, fingir demência, evitar as conversas difíceis necessárias para uma auto reflexão e evolução de si mesmos, como crianças mimadas e orgulhosas fogem das suas próprias responsabilidades, dizem que os outros fazem igual como desculpa para permanecer no erro, e eu lhe digo, caráter é fazer correto, mesmo que não façam o correto com você. Energia ruim atrai coisa ruim, passam uma vida toda sendo guiados pelo medo, fugindo da verdade, se escondendo atrás das mentiras que dizem, não para os outros, mas para si mesmos de que são pessoas boas, mas no fundo são tão podres (o que a Bem de verdade todos nós somos) quanto a qualquer e pior dos assassinos, o problema é a mentira dita para si mesmo, a tentativa de esconder o torpe, sendo arrogantes e orgulhosos, ao invés de compreensível com o Amor para com o próximo.
 
 <!-- TOC --><a name="roupas-e-vestes"></a>
 #### Roupas e vestes
@@ -1389,9 +1427,16 @@ Hebreus 12
 <!-- TOC --><a name="ambientes-família-e-amigos"></a>
 #### Ambientes, família e amigos
 
-- As pessoas mais sensíveis (geralmente as mulheres), quando crescem ou frequentam ambientes agressivos, se tornam piores.
+- As pessoas mais sensíveis (geralmente as mulheres), quando crescem ou frequentam ambientes agressivos, se tornam piores ou reprimidas.
 
 - Um doente não consegue ajudar outro doente. Mas você precisa saber quem está doente e quem não está, na dúvida confie em quem conhece para curar outros, ou em si mesmo desde que ambos sejam humildes para ser guiados por Deus.
+
+<!-- TOC --><a name="convívio-social-para-excessivamente-introvertidos"></a>
+#### Convívio social para excessivamente introvertidos
+
+- Introvertidos comuns talvez se achem com o tempo, mas os extremamente introvertidos provavelmente vão se achar reprimidos, como sempre, para todo mundo o primeiro remédio é confissão, eucaristia e oração. Depois penitências, sejam elas alimentares, corte de costumes ou adição de atividades que antes não fazia.
+
+- Pessoas introvertidas precisam saber pedir ajuda quando precisarem, e precisam saber agradecer ao próximo e antes de tudo a Deus, saberem dar bom dia, etc.
 
 <!-- TOC --><a name="autoridade"></a>
 #### Autoridade
@@ -1499,6 +1544,8 @@ Mateus 19
 <!-- TOC --><a name="tatuagens"></a>
 #### Tatuagens
 
+- As tatuagens são em primeira instância na maioria dos casos pura vaidade e/ou preenchimento de carências em necessidades de pertencimento a algo.
+
 - Considerando o poder da mente e das energias/vibrações vindas do coração e da mente, lembrando que a força da reza vem da mente e do coração, é com muito cuidado que você tem de pensar em tatuagens, pois elas podem remeter a bloqueios mentais, pensamentos ou lembranças ruins, não apenas em você, mas nas outras pessoas.
 
 - É uma questão da mente e coração, subliminarmente (sem você perceber) remete a coisas que não são de Deus. Não só em você que tem tatuagem ela pode acabar gerando pensamentos e sentimentos ruins, mas também nas pessoas que lhe olham. E convém saber que as pessoas muitas vezes não estão profundamente evoluídas para ver você como Espírito e não apenas carne, e dessa forma, automaticamente podem pensar e sentir algo negativo vindo de você mesmo que involuntariamente, e pequenos monstros geram outros monstros.
@@ -1548,156 +1595,6 @@ https://gauchazh.clicrbs.com.br/comportamento/noticia/2024/11/deus-existe-no-cer
 - Não existem limites para o poder de Deus. A bíblia não descreve nem 10% de seu poder, e nem de sua vontade. A bíblia só trás a mensagem principal, que Deus é principalmente Deus do coração, e não apenas da sabedoria, se você der espaço para a soberba achando que está com a verdade, ele fará com que sejas um cego. Aquele que se tem por sábio, faça-se louco para ser sábio. Por isso digo e repito, não é pela lógica, razão, compreensão que se lê a bíblia, mas pelo coração.
 
 - Não existe limites do amor e poder de Deus. Mas é certo certas crenças, como as Espíritas, ou Astrologia fazem com que as pessoas acabem não estando em comunhão com Cristo na rotinas de vida. Na Espírita por exemplo, pois passam a praticar um apego excessivo aos mortos de tal forma que acreditam que um certo parente reencarnou em um boi, vaca, bode, etc, ou geram um falta de compaixão com o próximo que um homem que nasceu enfermo está pagando pelos pecados de vidas passadas. Ou na astrologia para para dizer padrões comportamentais. Em verdade seja dita, tudo pode ser real se assim foi da vontade do senhor, mas o apego à essas crenças, como verdades maior do que o mandamento de Amar a Deus sobre todas as coisa, e de amar ao próximo, torna elas algo na prática algo desvirtuado, por mais que TALVEZ Deus tenha feito algo do tipo em sua louca, engenhosa e muitas vezes incompreensíveis criações.
-
-<!-- TOC --><a name="incompreensão-do-divino"></a>
-#### Incompreensão do divino
-
-Jó 32
-
-1. Então aqueles três homens cessaram de responder a Jó; porque era justo aos seus próprios olhos.
-2. E acendeu-se a ira de Eliú, filho de Baraquel, o buzita, da família de Rão; contra Jó se acendeu a sua ira, porque se justificava a si mesmo, mais do que a Deus.
-...
-9. Os grandes não são os sábios, nem os velhos entendem o que é direito.
-
-- Eliu se ira contra Jó pois jó achava que compreendia Deus, mas Deus muitas vezes é irracional e com certeza um louco aos olhos dos homens.
-
-Jó 33
-
-1. Assim, na verdade, ó Jó, ouve as minhas razões, e dá ouvidos a todas as minhas palavras.
-2. Eis que já abri a minha boca; já falou a minha língua debaixo do meu paladar.
-3. As minhas razões provam a sinceridade do meu coração, e os meus lábios proferem o puro saber.
-4. O Espírito de Deus me fez; e a inspiração do Todo-Poderoso me deu vida.
-5. Se podes, responde-me, põe em ordem as tuas razões diante de mim, e apresenta-te.
-6. Eis que vim de Deus, como tu; do barro também eu fui formado.
-7. Eis que não te perturbará o meu terror, nem será pesada sobre ti a minha mão.
-8. Na verdade tu falaste aos meus ouvidos; e eu ouvi a voz das tuas palavras. Dizias:
-9. Limpo estou, sem transgressão; puro sou, e não tenho iniqüidade.
-10. Eis que procura pretexto contra mim, e me considera como seu inimigo.
-11. Põe no tronco os meus pés, e observa todas as minhas veredas.
-12. Eis que nisso não tens razão; eu te respondo; porque maior é Deus do que o homem.
-13. Por que razão contendes com ele, sendo que não responde acerca de todos os seus feitos?
-
-Jó 34
-
-7. Que homem há como Jó, que bebe a zombaria como água?
-8. E caminha em companhia dos que praticam a iniqüidade, e anda com homens ímpios?
-9. Porque disse: De nada aproveita ao homem o comprazer-se em Deus.
-10. Portanto vós, homens de entendimento, escutai-me: Longe de Deus esteja o praticar a maldade e do Todo-Poderoso o cometer a perversidade!
-
-Resposta ChatGPT:
-
-"
-Eliú, um dos amigos de Jó, está questionando a postura de Jó diante do sofrimento e a sua aparente crítica a Deus. Eliú está se referindo ao fato de Jó, durante o sofrimento, ter começado a expressar um sentimento de desesperança e a questionar a justiça de Deus.
-Jó 34:7-9 (Almeida): 7 Que homem há como Jó, que bebe a zombaria como água? 8 E caminha em companhia dos que praticam a iniqüidade, e anda com homens ímpios? 9 Porque disse: De nada aproveita ao homem o comprazer-se em Deus.
-Explicação:
-"Que homem há como Jó, que bebe a zombaria como água?": Eliú está descrevendo a atitude de Jó, que parece absorver a zombaria ou a crítica de seus amigos e até de outros, como se fosse algo natural ou que ele não se importasse com isso. Essa frase indica que Jó foi alvo de zombarias e críticas durante seu sofrimento.
-"E caminha em companhia dos que praticam a iniqüidade, e anda com homens ímpios?": Eliú sugere que Jó está se associando com pessoas más, ou seja, ele está se alinhando com aqueles que, na visão de Eliú, não têm reverência por Deus e estão questionando a sua justiça, assim como ele.
-"Porque disse: De nada aproveita ao homem o comprazer-se em Deus.": Eliú está refletindo uma das falas de Jó, na qual ele expressou a ideia de que servir a Deus ou viver de maneira justa não traz benefícios evidentes, especialmente quando se sofre sem razão aparente. Jó, em alguns momentos, parecia questionar se realmente valia a pena ser justo diante de um sofrimento tão grande.
-Essas palavras de Eliú têm o objetivo de criticar a postura de Jó, sugerindo que ele estava perdendo sua confiança em Deus e questionando a utilidade de viver de acordo com os princípios divinos, justamente no momento de maior aflição. Eliú, ao contrário, está defendendo que é importante manter a fé e confiar na justiça de Deus, independentemente das circunstâncias.
-"
-
-11. Porque, segundo a obra do homem, ele lhe paga; e faz a cada um segundo o seu caminho.
-12. Também, na verdade, Deus não procede impiamente; nem o Todo-Poderoso perverte o juízo.
-13. Quem lhe entregou o governo da terra? E quem fez todo o mundo?
-14. Se ele pusesse o seu coração contra o homem, e recolhesse para si o seu espírito e o seu fôlego,
-15. Toda a carne juntamente expiraria, e o homem voltaria para o pó.
-
-Resposta ChatGPT:
-"
-Esse trecho, onde Eliú, o amigo de Jó, continua defendendo a justiça e a soberania de Deus, argumentando que Deus não age de maneira injusta nem impiedosa, e que ele é o governante soberano sobre toda a criação.
-Aqui está a explicação detalhada desses versículos:
-Jó 34:11-15 (Almeida):
-11 "Porque, segundo a obra do homem, ele lhe paga; e faz a cada um segundo o seu caminho." Eliú está dizendo que Deus retribui a cada um conforme suas ações. A justiça de Deus é retributiva, ou seja, Ele paga ao homem conforme o que ele faz, de acordo com sua conduta.
-12 "Também, na verdade, Deus não procede impiamente; nem o Todo-Poderoso perverte o juízo." Eliú afirma com clareza que Deus nunca age de maneira injusta ou impiedosa. Deus é justo em tudo o que faz e nunca corrompe a justiça. Isso é uma resposta direta ao questionamento de Jó sobre a justiça de Deus em meio ao seu sofrimento.
-13 "Quem lhe entregou o governo da terra? E quem fez todo o mundo?" Aqui, Eliú lembra que Deus é o criador e governante do universo. Ele é o responsável por tudo o que existe, incluindo o governo da terra e o funcionamento do mundo. Esse argumento visa afirmar a autoridade de Deus sobre todas as coisas e justificar Sua ação soberana.
-14 "Se ele pusesse o seu coração contra o homem, e recolhesse para si o seu espírito e o seu fôlego," Eliú está dizendo que Deus tem o poder absoluto sobre a vida humana. Se Deus decidisse retirar o espírito e o fôlego do homem, ele não teria mais vida. A existência humana depende totalmente da vontade e da ação de Deus.
-15 "Toda a carne juntamente expiraria, e o homem voltaria para o pó." Se Deus retirasse o fôlego de vida de todas as criaturas, todos morreriam e voltariam ao pó, indicando a fragilidade e a dependência do ser humano em relação à vontade divina. A morte física é o retorno ao estado de pó de onde o homem foi formado, como em Gênesis 3:19.
-Contexto geral: Neste discurso, Eliú está reforçando a ideia de que Deus é soberano, justo e totalmente independente das ações humanas. Ele quer convencer Jó de que, apesar de seu sofrimento, Deus não agiu injustamente e que as dificuldades enfrentadas por Jó podem ter um propósito maior, em conformidade com a justiça e a sabedoria divinas. Eliú vê a situação de Jó como uma oportunidade para reforçar a grandeza e a moralidade de Deus, sem considerar que a aflição de Jó possa ser resultado de fatores além de sua compreensão ou julgamento.
-Esse discurso também destaca a concepção de que a vida e a morte estão nas mãos de Deus, e Ele age de acordo com sua sabedoria, sem jamais cometer injustiça.
-"
-
-30. Para que o homem hipócrita nunca mais reine, e não haja laços no povo.
-31. Na verdade, quem a Deus disse: Suportei castigo, não ofenderei mais.
-32. O que não vejo, ensina-me tu; se fiz alguma maldade, nunca mais a hei de fazer?
-33. Virá de ti como há de ser a recompensa, para que tu a rejeites? Faze tu, pois, e não eu, a escolha; fala logo o que sabes.
-
-Resposta ChatGPT:
-"
-Esse trecho é de Jó 34:30-33, onde Eliú continua seu discurso sobre a justiça de Deus, a natureza humana e o arrependimento. Ele está questionando a postura de Jó, sugerindo que ele deveria se submeter ao julgamento e ao ensino de Deus, em vez de questioná-lo ou acusá-lo de injustiça.
-Aqui está uma explicação detalhada dos versículos:
-Jó 34:30-33 (Almeida):
-30 "Para que o homem hipócrita nunca mais reine, e não haja laços no povo." Eliú está se referindo ao "homem hipócrita", que é aquele que finge ser justo, mas age de maneira corrupta. A ideia é que Deus, em Sua justiça, deve afastar esse tipo de pessoa do poder, para que não haja opressão ou engano entre o povo. Eliú parece estar apontando que o sofrimento de Jó pode ser, de certa forma, uma forma de purificação ou correção de sua postura.
-31 "Na verdade, quem a Deus disse: Suportei castigo, não ofenderei mais." Eliú está falando sobre a atitude de arrependimento. Ele sugere que a pessoa que sofre deve reconhecer sua culpa e se comprometer a não pecar mais. "Suportei castigo" implica em reconhecer que o sofrimento tem uma razão, e "não ofenderei mais" é a promessa de corrigir o comportamento para evitar a repetição do erro.
-32 "O que não vejo, ensina-me tu; se fiz alguma maldade, nunca mais a hei de fazer?" Aqui, Eliú sugere que, caso alguém não tenha consciência do mal que fez (ou seja, se não percebeu suas transgressões), deve buscar o ensino e a orientação de Deus. Ele está pedindo a Deus para revelar ao homem o que ele não vê, ou seja, para abrir seus olhos para qualquer mal que possa ter cometido sem perceber.
-33 "Virá de ti como há de ser a recompensa, para que tu a rejeites? Faze tu, pois, e não eu, a escolha; fala logo o que sabes." Neste versículo, Eliú desafia Jó (e, de modo geral, os ouvintes) a aceitarem a ação de Deus como justa, sem questioná-la. Ele está sugerindo que, se alguém tem objeções ao que Deus decide, deve expressá-las claramente. Ele também coloca a responsabilidade nas mãos de Deus, dizendo que Ele é quem deve determinar como será a recompensa ou a consequência das ações humanas. Eliú está tentando convencer Jó a submeter-se à decisão divina, pois Deus sabe o que é melhor.
-Contexto geral: Esses versículos fazem parte do argumento de Eliú de que Deus é justo e que o sofrimento humano tem um propósito, que pode ser o arrependimento e a correção de erros não reconhecidos. Eliú desafia Jó a aceitar que, se ele está sofrendo, talvez seja porque algo precisa ser corrigido, e ele deve se submeter ao ensino e à disciplina de Deus, reconhecendo que Deus é o único juiz justo.
-O discurso de Eliú, como um todo, busca reforçar a ideia de que Deus é soberano e justo, e que o ser humano, por mais que sofra ou questione, não deve duvidar da retidão de Deus, mas buscar aprender e corrigir seus próprios erros diante do sofrimento.
-"
-
-36. Pai meu! Provado seja Jó até ao fim, pelas suas respostas próprias de homens malignos.
-37. Porque ao seu pecado acrescenta a transgressão; entre nós bate palmas, e multiplica contra Deus as suas palavras.
-
-Resposta ChatGPT:
-"
-Esse trecho é de Jó 34:36-37, onde Eliú expressa sua opinião sobre a atitude de Jó diante do sofrimento. Eliú está afirmando que, em vez de se humilhar e reconhecer a justiça de Deus, Jó está respondendo de maneira errada, com palavras de rebeldia e contestação, o que, para ele, só aumenta sua transgressão.
-Aqui está a explicação detalhada dos versículos:
-Jó 34:36-37 (Almeida):
-36 "Pai meu! Provado seja Jó até ao fim, pelas suas respostas próprias de homens malignos." Eliú começa esta seção com uma expressão de desejo: ele quer que Jó seja provado até o fim. Ele acredita que Jó precisa ser mais profundamente testado para que sua verdadeira natureza e atitude se revelem. Para Eliú, as respostas de Jó, que questionam a justiça de Deus e se queixam de seu sofrimento, são respostas "próprias de homens malignos". Isso significa que, em sua visão, Jó está agindo de maneira impiedosa e errada ao falar contra Deus, como se fosse alguém que fosse fundamentalmente rebelde ou ímpio.
-37 "Porque ao seu pecado acrescenta a transgressão; entre nós bate palmas, e multiplica contra Deus as suas palavras." Eliú acusa Jó de não apenas cometer pecados, mas de adicionar transgressão sobre transgressão, ou seja, de intensificar sua culpa. Ele vê as palavras de Jó como uma multiplicação de blasfêmias e desrespeito a Deus. A expressão "bater palmas" pode ser entendida como uma metáfora para zombar ou fazer escárnio, talvez sugerindo que Jó, ao contestar a Deus, está de alguma forma celebrando sua própria rebelião. Para Eliú, isso só aumenta a culpa de Jó, porque ele não está apenas sofrendo de maneira passiva, mas se rebelando ativamente contra Deus, multiplicando suas ofensas.
-Contexto e interpretação:
-O discurso de Eliú em Jó 34:36-37 é uma crítica direta à postura de Jó, que ele vê como imprópria e insolente. Eliú argumenta que, em vez de reconhecer que seu sofrimento pode ter um propósito divino e se humilhar diante de Deus, Jó está falando de maneira presunçosa e rebelde, multiplicando suas transgressões. Para Eliú, a atitude de Jó é comparável à de "homens malignos", aqueles que se opõem a Deus e são culpados de blasfêmia e desrespeito.
-Além disso, Eliú está sugerindo que, ao questionar Deus e suas ações, Jó está não só ampliando seu pecado, mas também rejeitando o propósito divino no sofrimento. Ao invés de buscar entender e aceitar o que Deus está tentando ensinar através de sua aflição, Jó, em sua visão, está apenas intensificando sua culpa.
-Visão geral do pensamento de Eliú: Eliú, ao contrário dos outros amigos de Jó, tenta apresentar uma visão mais centrada em aceitar o sofrimento como algo que tem um propósito divino e pedagógico. Ele acredita que Deus usa o sofrimento para ensinar, corrigir e purificar os seres humanos, e que a atitude correta diante do sofrimento é a aceitação da soberania de Deus, e não a rebelião. Para Eliú, Jó não está agindo corretamente ao questionar a justiça de Deus, pois ele está, segundo Eliú, acumulando mais transgressões ao se revoltar e multiplicar suas queixas contra o Criador.
-Esse trecho reflete a ideia de que, em meio ao sofrimento, a humildade e a aceitação da vontade de Deus são fundamentais, e que qualquer atitude de resistência ou rebeldia, como a de Jó, só agrava a situação.
-"
-
-Jó 36
-
-21. Guarda-te, e não declines para a iniqüidade; porquanto isso escolheste antes que a aflição.
-22. Eis que Deus é excelso em seu poder; quem ensina como ele?
-23. Quem lhe prescreveu o seu caminho? Ou, quem lhe dirá: Tu cometeste maldade?
-
-Jó 37
-
-23. Ao Todo-Poderoso não podemos alcançar; grande é em poder; porém a ninguém oprime em juízo e grandeza de justiça.
-24. Por isso o temem os homens; ele não respeita os que se julgam sábios de coração.
-
-Resposta ChatGPT:
-"
-Esse trecho é de Jó 37:23-24, onde Eliú continua seu discurso sobre a grandeza e a justiça de Deus, destacando que a soberania divina não pode ser alcançada pelos homens, e que, por ser um juiz justo e imparcial, Ele é digno de ser temido.
-Aqui está a explicação detalhada dos versículos:
-Jó 37:23-24 (Almeida):
-23 "Ao Todo-Poderoso não podemos alcançar; grande é em poder; porém a ninguém oprime em juízo e grandeza de justiça." Eliú está reconhecendo que Deus é incompreensível e inalcançável para os seres humanos. Ele destaca o poder imenso de Deus, que está além da capacidade humana de entender e controlar. No entanto, ele afirma que, apesar do grande poder de Deus, Ele nunca age de maneira injusta. Deus é descrito como sendo "grande em poder", mas, ao mesmo tempo, sua justiça e julgamento são sempre justos e imparciais, sem opressão.
-24 "Por isso o temem os homens; ele não respeita os que se julgam sábios de coração." Eliú explica que, devido à grandeza e à justiça de Deus, os homens O temem. Esse temor é o reconhecimento da Sua autoridade suprema e do fato de que Ele julga sem parcialidade. Além disso, Eliú aponta que Deus não faz distinção entre os homens com base em sua autopercepção ou sabedoria. Aqueles que se julgam sábios e se consideram justos de coração, Deus não os respeita, pois Ele é soberano e não se submete aos critérios humanos. Ele não favorece ninguém com base no orgulho ou na arrogância de sua sabedoria própria.
-Contexto e interpretação:
-Eliú está aqui enfatizando a ideia de que Deus, apesar de Seu poder imensurável, é perfeitamente justo e imparcial em Seus julgamentos. Ele lembra a Jó e aos outros ouvintes que, embora os seres humanos não possam entender completamente os caminhos de Deus, a Sua justiça nunca é corrompida. A postura de Eliú é a de que a sabedoria humana não pode ser comparada à de Deus, e aqueles que se consideram sábios em seus próprios olhos precisam aprender a se submeter à sabedoria divina.
-Significado teológico:
-Eliú está enfatizando a ideia de que Deus é transcendente e justo, e que Sua grandeza deve inspirar temor e respeito nos homens. Ele está tentando mostrar a Jó que, por mais que ele se sinta injustiçado, Deus age com imparcialidade, e os homens não têm o direito de questionar Seus caminhos. O "temor de Deus" aqui é entendido como um reconhecimento de Sua soberania, poder e justiça, e o entendimento de que os humanos não podem se comparar a Ele, especialmente aqueles que se consideram sábios em seus próprios corações.
-Esse discurso reforça a ênfase de Eliú sobre a necessidade de humildade diante de Deus, reconhecendo a limitação humana frente à grandeza divina e aceitando que, mesmo sem compreender completamente o porquê do sofrimento, Deus age com justiça e retidão.
-"
-
-Jó 38
-
-1. Depois disto o SENHOR respondeu a Jó de um redemoinho, dizendo:
-2. Quem é este que escurece o conselho com palavras sem conhecimento?
-3. Agora cinge os teus lombos, como homem; e perguntar-te-ei, e tu me ensinarás.
-4. Onde estavas tu, quando eu fundava a terra? Faze-mo saber, se tens inteligência.
-5. Quem lhe pôs as medidas, se é que o sabes? Ou quem estendeu sobre ela o cordel?
-
-Esse trecho é de Jó 38:1-5, o início da resposta de Deus a Jó, após o longo debate sobre o sofrimento e a justiça divina entre Jó e seus amigos. Deus responde a Jó, não diretamente a suas perguntas ou queixas, mas desafiando-o a reconhecer a vastidão de Seu poder e sabedoria, algo que está além da compreensão humana.
-Aqui está a explicação detalhada:
-Jó 38:1-5 (Almeida):
-"Depois disto o SENHOR respondeu a Jó de um redemoinho, dizendo:" Deus responde a Jó a partir de um "redemoinho", uma manifestação natural poderosa e impressionante, muitas vezes associada à presença de Deus no Antigo Testamento (por exemplo, em Ezequiel 1:4). A ideia é que a resposta de Deus vem com grande poder e autoridade, para fazer Jó perceber a enormidade da sabedoria e do controle divinos.
-"Quem é este que escurece o conselho com palavras sem conhecimento?" Deus começa Seu discurso questionando quem é o ser humano que tenta discutir ou questionar os Seus planos e julgamentos. Ele acusa Jó (e, por extensão, todos os homens) de usar palavras sem conhecimento, ou seja, de falar sobre coisas que estão além de sua compreensão, como se tivessem o direito de entender completamente os caminhos de Deus. Isso sugere que as reclamações de Jó, embora sinceras, estavam baseadas em uma perspectiva limitada.
-"Agora cinge os teus lombos, como homem; e perguntar-te-ei, e tu me ensinarás." Deus desafia Jó a se preparar para responder como um homem forte e capaz, sugerindo que ele se prepare para um interrogatório em que será questionado sobre o vasto conhecimento e poder de Deus. O verbo "cingir os lombos" significa se preparar para um desafio ou trabalho árduo, como alguém que se prepara para uma batalha ou tarefa exigente.
-"Onde estavas tu, quando eu fundava a terra? Faze-mo saber, se tens inteligência." Deus começa com uma pergunta fundamental sobre a criação do mundo. Ele desafia Jó a afirmar onde estava quando a terra foi formada, mostrando que, ao contrário de Deus, o homem não estava presente no início da criação e não tem o conhecimento necessário sobre como o mundo foi estabelecido. Essa pergunta implica que Jó, e qualquer ser humano, não têm a perspectiva necessária para compreender completamente os desígnios e a sabedoria de Deus.
-"Quem lhe pôs as medidas, se é que o sabes? Ou quem estendeu sobre ela o cordel?" Deus continua a questionar sobre os detalhes da criação, perguntando quem estabeleceu as "medidas" ou as dimensões do universo, ou quem usou o "cordel" para medir a terra. O "cordel" era uma corda usada para medir e traçar limites, uma metáfora para o ato de Deus de estabelecer as leis e ordens cósmicas. Mais uma vez, Deus está mostrando a Jó (e a todos) que não têm a sabedoria ou a capacidade de entender a magnitude do universo e o planejamento divino.
-Contexto e significado teológico:
-A resposta de Deus a Jó começa com uma série de perguntas que sublinham a incompreensibilidade e a grandiosidade de Seu poder e sabedoria. O foco aqui é mostrar a Jó que, como ser humano, ele não tem a capacidade de entender totalmente os planos e os motivos divinos. Deus questiona Jó sobre a criação do mundo e os fundamentos cósmicos, áreas de conhecimento que são absolutamente inatingíveis para a mente humana.
-Essas perguntas têm o efeito de colocar em perspectiva o lugar do ser humano no universo. Deus está, de forma indireta, dizendo a Jó (e a todos os ouvintes) que a sabedoria humana é limitada, e que o sofrimento, por mais difícil que seja, pode ter um propósito maior que o homem não pode compreender completamente.
-Ao questionar Jó sobre os fundamentos do universo, Deus está, de maneira simbólica, lembrando a ele que o ser humano não pode exigir explicações divinas para o sofrimento, pois sua capacidade de entender a complexidade do plano divino é muito limitada.
-Importância no Livro de Jó:
-A resposta de Deus marca o clímax do livro de Jó. Após tanto sofrimento e tantas tentativas de entender o que aconteceu, Deus não dá uma explicação direta para o sofrimento de Jó, mas coloca a questão em uma perspectiva cósmica e divina. O sofrimento humano, para Deus, não é apenas uma questão de punição ou retribuição direta, mas está inserido em um quadro muito maior e além da compreensão humana. Deus convida Jó a refletir sobre Sua grandeza e a humildade diante do mistério do sofrimento.
 
 <!-- TOC --><a name="fé"></a>
 #### Fé
@@ -1901,14 +1798,16 @@ Reflexão: não julgais alguém por beber e comer em comemoração, mas sim quan
 
 - Da mesma forma qualquer vício, como aquele que sempre ao chegar em casa, sendo da faculdade, escola ou trabalho, ter como ÚNICA forma de passa tempo um vídeo game, ou qualquer e exclusivamente a mesma diversão/alívio. Necessário muitas vezes revezar com outras atividades.
 
-- Igualmente o EXCESSO de preocupações com trabalho, e com rotinas esportivas como academia ou qualquer outra pode se tornar algo que era benéfico em maléfico, não se deve para largar os bons hábitos, como trabalho e esportes, mas não se deve ficar angustiadamente  preocupado ou viciado nós mesmos.
+- Igualmente o EXCESSO de preocupações com trabalho, e com rotinas esportivas como academia ou qualquer outra pode se tornar algo que era benéfico em maléfico, não se deve largar os bons hábitos, como trabalho e esportes, mas não se deve ficar angustiadamente preocupado ou viciado nos mesmos.
+
+- Talvez ainda sejamos crianças, apenas trocamos a chupeta por outro vício/dependência, e qual seria exatamente é essa dependência? Basta observar a si mesmo e ver a angústia ou ansiedade tomar conta quando você entra em processo de abstinência. A cura dessas angústias talvez seja uma confissão de coisas mal resolvidas que você tenta negar para si mas não consegue negar para seu coração, e que procura refúgio e alívio nos vícios, a confissão e oração ajuda na cura, assim  como penitência/jejum, e variação de atividades durante o dia-dia.
 
 <!-- TOC --><a name="castidade-masturbação-pornografia-drogas-bebidas-vícios-gula-dinheiro-influência-e-poder"></a>
 #### Castidade, Masturbação, Pornografia, Drogas, Bebidas, Vícios, Gula, dinheiro, influência e poder
 
 - Para quem vive neste mundo, os desejos que parecem ser os mais populares, é sexo, bebidas e drogas, para este primeiro o processo resolvedor é a renúncia. Preenchendo a mente com coisas que lhe distraiam desses pensamentos, ler a bíblia é o ideal pois trará evolução espiritual, mas existe uma outra opção que também parece (mas não eh) ser promissora, que seria trocar esses vícios da luxúria pelo da ganância e sede de poder (dinheiro, influência, bens). A busca pela ganância também lhe levará ao sofrimento. A busca pela evolução espiritual  deve ser em renunciar a tudo isso, e na literalidade se fortalecendo espiritualmente indo a Igreja, e no processo inicial para quem está começando, é melhor ir na igreja sempre mesmo que logo em seguida tenha marcada para ir no puteiro, aos poucos você verá onde realmente se sentirá em paz, pois estará ali, comparando ponto a ponto.
 
-- Mas depois de você se ver livre dessas coisas do mundo, de passar um tempo se fortalecendo espiritualmente na palavra, de como uma criança que acaba de nascer e bebeu do leite da mãe, agora evoluído e crescido é preciso que gere frutos, e gerar frutos é ir nos lugares onde o pecado impera, de saber discernir do que beber ou que não beber, do que comer e o que não comer, de saber orientar, de saber ensinar, de saber ser paciente pois não és dono de nada nem de ninguém, de ter ao próximo para libertar o próximo da escravidão do pecados(desejos meramente carnais).
+- Mas depois de você se ver livre dessas coisas do mundo, de passar um tempo se fortalecendo espiritualmente na palavra, de como uma criança que acaba de nascer e bebeu do leite da mãe, agora evoluído e crescido é preciso que gere frutos, e gerar frutos é ir nos lugares onde o pecado impera, de saber discernir do que beber ou que não beber, do que comer e o que não comer, de saber orientar, de saber ensinar, de saber ser paciente pois não és dono de nada nem de ninguém, de ter ao próximo para libertar o próximo da escravidão do pecado(desejos meramente carnais).
 
 Hebreus 5
 
@@ -1918,10 +1817,52 @@ Hebreus 5
 
 - O discernimento do bem e do mal em si próprio envolve, focar em um ato e maturá-lo na mente, e paralelamente criar um EU observador, que análise minuciosamente cada emoção, cada sentimento, cada desejo em cada segundo ou milésimo de segundo, não para sentir para prazer, mas para discernir e amadurecer o joio para depois removê-lo sabendo que aquilo não é trigo. Infelizmente para o conhecedor, da para talvez identificar o que é trigo desde muito cedo, mas é preciso que seja sábio em entender que nem todos tem capacidade de discernir o joio tão cedo para removê-lo, é preciso acompanhar os irmãos que decidem amadurecer mais o joio, para que no momento mais derradeiro, quando estiver na beira do abismo, você acorde ele e diga, espere, olhe o caminho que trilhaste, isto é joio e não trigo.
 
+<!-- TOC --><a name="avareza-dinheiro-desapego-e-dosagem-do-remédio"></a>
+#### Avareza, Dinheiro, desapego e dosagem do remédio
+
+Lucas 18
+
+18. Um homem de posição perguntou então a Jesus: “Bom Mestre, que devo fazer para possuir a vida eterna?”.
+19. Jesus respondeu-lhe: “Por que me chamas bom? Ninguém é bom senão só Deus.
+20. Conheces os mandamentos: não cometerás adultério; não matarás; não furtarás; não dirás falso testemunho; honrarás pai e mãe”.
+21. Disse ele: “Tudo isso tenho guardado desde a minha mocidade”.
+22. A essas palavras, Jesus lhe falou: “Ainda te falta uma coisa: vende tudo o que tens, dá-o aos pobres e terás um tesouro no céu; depois, vem e segue-me”.
+23. Ouvindo isso, ele se entristeceu, pois era muito rico.
+24. Vendo-o entristecer-se, disse Jesus: “Como é difícil aos ricos entrar no Reino de Deus!
+25. É mais fácil passar o camelo pelo fundo de uma agulha do que um rico entrar no Reino de Deus.”*
+26. Perguntaram os ouvintes: “Quem então poderá salvar-se?”
+27. Respondeu Jesus: “O que é impossível aos homens é possível a Deus.”
+
+Lucas 19
+
+1. Jesus entrou em Jericó e ia atravessando a cidade.
+2. Havia aí um homem muito rico chamado Zaqueu, chefe dos recebedores de impostos.
+3. Ele procurava ver quem era Jesus, mas não o conseguia por causa da multidão, porque era de baixa estatura.
+4. Ele correu adiante, subiu a um sicômoro para o ver, quando ele passasse por ali.
+5. Chegando Jesus àquele lugar e levantando os olhos, viu-o e disse-lhe: “Zaqueu, desce depressa, porque é preciso que eu fique hoje em tua casa.”
+6. Ele desceu a toda a pressa e recebeu-o alegremente.
+7. Vendo isso, todos murmuravam e diziam: “Ele vai hospedar-se em casa de um pecador...”.
+8. Zaqueu, entretanto, de pé diante do Senhor, disse-lhe: “Senhor, vou dar a metade dos meus bens aos pobres e, se tiver defraudado alguém, restituirei o quádruplo”.
+9. Disse-lhe Jesus: “Hoje entrou a salvação nesta casa, porquanto também este é filho de Abraão.
+10. Pois o Filho do Homem veio procurar e salvar o que estava perdido”. (= Mt 25,14-30)
+
+- Não é sobre não possuir bens, dinheiro ou possos, mas sim sobre aonde estar o seu coração, que não deve amar mais ao dinheiro do que a Deus tornando-se assim avarento. Se tens bens, posses ou dinheiro, saiba que isto não é seu mas de Deus e que foi lhe delegado a cuidar disto para servir ao próximo e garantir o necessário para seu sustento.
+
+- A dosagem do remédio vai depender da gravidade da doença, e certas vezes o remédio é amargo como um acafrão (gengibre). Enquanto para um a dosagem era se desprender de tudo devido a gravidade da doença do apego ao dinheiro que sujava a alma, para outro o apego ao dinheiro não existia tanto, precisando assim deste apenas uma dosagem menor.
+
 <!-- TOC --><a name="consciência-x-sonhos-aos-dormir"></a>
 #### Consciência x Sonhos aos dormir
 
 - Muitas vezes já me deparei em sonhos, fazendo coisas que parecia que não era eu, tendo desejos que via que não era eu, em nenhum momento nesses sonhos eu me via no espelho, mas muitas vezes me caindo de um prédio ou precipício, me afogando, e depois acordando, e muitas vezes com pessoas que eu nunca tinha visto fazendo um mal a alguém como sexo, estupros, e depois acordando, sem remorsos pois entendia que era apenas sonho e ninguém precisaria saber, e que eu mesmo sei que não faria isso de mal aos outros, pelo menos não enquanto acreditasse e tivesse fé em Deus, pois com Deus eu já tentei fazer o mal e não consegui, mas sem Deus confesso que não teria limites. Mas se não foi eu, quem foi ? Em um palpite eu diria que Espíritos que entram na sua mente para lhe possuir e tentar sentir um pouco dos prazeres e adrenalinas do corpo, espíritos ainda apegados a matéria que apenas atormentam a si mesmos, e você é só mais uma vítima do inferno dos prazeres mundanos que você escolhe, desses espírito que talvez sejam demônios, ou talvez apenas espíritos travessos.
+
+<!-- TOC --><a name="dos-desejos-estéticos-ou-performance-materialistas"></a>
+#### Dos desejos estéticos ou performance materialistas
+
+- Fortalecer o corpo através da atividade física e uma boa alimentação é bom, mas com o fortalecimento do corpo vem a produção de hormônios que trazem a concupiscência/desejos da carne, o que torna necessário em conjunto fortalecer a mente e Espírito(coração), para manter um equilíbrio.
+
+- Os desejos de fortalecer o corpo podem trazer o vício e apego a estética, ou apego a performance para um determinado objetivo materialista, não é um problema realizar atividades físicas, mas sim o vício ou apego a resultados desejados, uma das formas de se avaliar esse apego é saber se ao adoecer, ou precisar cuidar de algo que lhe consuma o tempo para tais atividade, você vai saber sacrifica-las, sabendo que talvez possa retornar em um segundo momento oportuno, de acordo com necessidades muito mais do egoístas.
+
+- É preciso estar nos reconhecendo como miseráveis sozinhos, precisando sempre fortalecer nosso nosso Espírito em Cristo através do Espírito Santo, pois só ele é virtuoso, e vigiando-nos, pois estamos sujeitos a todo momento de Quando não  errarmos pela preguiça, errarmos pelo excesso de disciplina que virou vício, mas também não devemos nos preocupar na perfeição, bastas apenas reconhecermos a nós como miseráveis sozinhos que precisamos da graça do Espírito Santo de Cristo, deixando humildemente o mesmo habitar em nós para transparecer a graça, através da Alegria, Esperança e paz, que são e crescem como bases do Amor de Deus.
 
 <!-- TOC --><a name="a-dádiva-da-vida"></a>
 #### A dádiva da vida
@@ -1960,14 +1901,9 @@ Mateus 10
 
 - Zele pelo presente da vida e tudo que ela lhe dar honrando a Deus, pois nem a vida é sua mas sim de Deus e no momento oportuno ele pegará de volta.
 
-<!-- TOC --><a name="dos-desejos-estéticos-ou-performance-materialistas"></a>
-#### Dos desejos estéticos ou performance materialistas
+- Aqueles que dizem: "a vida só tem uma, e estar aí para ser vivida", e com isso usam deste discurso para desonrar a Deus, estes pouco acreditam ou valorizam a vida após a morte, e por isso apesar de vivos em carne já estão mortos por dentro e nem percebem, pois por livre e espontânea vontade escolheram a morte da alma. A misericórdia e arrependimento para não voltar atrás é para todos, mas é sua escolha pelo apego de Amar mais ao mundo do que a Deus, ou seu próprio orgulho, que lhe auto condena.
 
-- Fortalecer o corpo através da atividade física e uma boa alimentação é bom, mas com o fortalecimento do corpo vem a produção de hormônios que trazem a concupiscência/desejos da carne, o que torna necessário em conjunto fortalecer a mente e Espírito(coração), para manter um equilíbrio.
-
-- Os desejos de fortalecer o corpo podem trazer o vício e apego a estética, ou apego a performance para um determinado objetivo materialista, não é um problema realizar atividades físicas, mas sim o vício ou apego a resultados desejados, uma das formas de se avaliar esse apego é saber se ao adoecer, ou precisar cuidar de algo que lhe consuma o tempo para tais atividade, você vai saber sacrifica-las, sabendo que talvez possa retornar em um segundo momento oportuno, de acordo com necessidades muito mais do egoístas.
-
-- É preciso estar nos reconhecendo como miseráveis sozinhos, precisando sempre fortalecer nosso nosso Espírito em Cristo através do Espírito Santo, pois só ele é virtuoso, e vigiando-nos, pois estamos sujeitos a todo momento de Quando não  errarmos pela preguiça, errarmos pelo excesso de disciplina que virou vício, mas também não devemos nos preocupar na perfeição, bastas apenas reconhecermos a nós como miseráveis sozinhos que precisamos da graça do Espírito Santo de Cristo, deixando humildemente o mesmo habitar em nós para transparecer a graça, através da Alegria, Esperança e paz, que são e crescem como bases do Amor de Deus.
+- Devemos manter a harmonia entre viver intensamente e com a verdade o hoje como se fosse nosso último dia sem arrependimentos e com humildade, e com a prudência de que se não for o último dia teremos as responsabilidades e consequências do amanhã.
 
 <!-- TOC --><a name="consciência-distração-inquietação-e-desejos-de-barulho"></a>
 #### Consciência, distração, Inquietação e desejos de barulho
@@ -1975,6 +1911,27 @@ Mateus 10
 - Se você não consegue passar um tempo sozinho com sua própria consciência pois a mesma lhe atormenta, e a todo momento precisa de distração, como necessidades CONSTANTES de escutar músicas, de estar em agitação, movimento ou adrenalina, na busca por dopamina e coisas de prazer, evidenciando uma imensa dificuldade de estar em paz consigo mesmo e o com ambiente ao redor, mesmo que o ambiente ao redor esteja em paz, é porque existe a necessidade de encarar problemas interiores mal resolvidos, e é bom resolver isso rápido antes que a cortina se feche, e o guarda lhe chame pro exame final.
 
 - Inquietação e desejos de barulho, muitas vezes reflexo de ansiedade, acompanham também orgulho e presunção, mas no fundo alguma tristeza ou medo. Necessário encarar medos com esperança, tristeza com alegria, raiva com paz/paciência, dificuldades mesmo na dor. Muitos desses inquietos são aqueles que criam tempestades em copo d'água.
+
+<!-- TOC --><a name="zona-de-conforto-escrever-logo-após-vícios"></a>
+#### Zona de conforto ( escrever logo após vícios)
+
+- A zone de conforto é a rotina, o vício de qualquer coisa, seja na própria preguiça ou na própria disciplina.
+
+- Em um determinado momento da vida a zona de conforto pode se tornar a própria disciplina, se prendendo tanto a uma rotina que se desfazer dela se torna o grande desafio.
+
+<!-- TOC --><a name="escolher-a-escravidão"></a>
+#### Escolher a Escravidão
+
+João 6
+
+64. Mas há alguns entre vós que não creem...”. Pois desde o princípio Jesus sabia quais eram os que não criam e quem o havia de trair.
+65. Ele prosseguiu: “Por isso, vos disse: Ninguém pode vir a mim, se por meu Pai não lho for concedido”.
+66. Desde então, muitos dos seus discípulos se retiraram e já não andavam com ele.
+67. Então, Jesus perguntou aos Doze: “Quereis vós também retirar-vos?”.
+68. Respondeu-lhe Simão Pedro: “Senhor, a quem iríamos nós? Tu tens as palavras da vida eterna.
+69. E nós cremos e sabemos que tu és o Santo de Deus!”.*
+
+- Todos somos escravos de alguma coisa, mas a maior dádiva dada pelo próprio Deus é poder escolher ser escravo/servo de Cristo, às vezes pesa até demais essa cruz, mas o Deus sempre é justo, nós talvez que sejamos impacientes.
 
 <!-- TOC --><a name="buscar-honrar-à-deus-e-não-aos-homens"></a>
 #### Buscar honrar à Deus e não aos homens
@@ -1991,7 +1948,7 @@ João 5
 46. Porque, se vós crêsseis em Moisés, creríeis em mim; porque de mim escreveu ele.
 47. Mas, se não credes nos seus escritos, como crereis nas minhas palavras?
 
-- Que seja Deus a sua plateia e não os homens
+- Que seja Deus a sua plateia e não os homens.
 
 - Aqui também vai uma reflexão sobre o amadurecer por alguém ou algo, como parceiro(a) ou partir de um filho, ou almejando um objetivo, todos que não seja o de honrar a Deus são fúteis e no fundo imaturos. A primeira honra tem de ser a Deus e não a um ser ou algo de carne ou matéria, mesmo que seja para um parceiro de vida ou um filho, ou cargo/posição, a necessidade de mudar para se encaixar em algo por si só mostra a imaturidade de não reconhecer a si mesmo, e tentar mentir para si sobre quem eh, a mudança e maturidade é plausível e necessária, o problema são as motivações que lhe levam a isso. Se foi preciso um tombo, um tapa na cara para você mudar, mude, mas saiba que quando mudar ainda estará muito longe da maturidade, e isso fica evidente no olhar pomposo, de se achar superior a alguém considerando o outro infantil, subestimando as coisas pequenas e aquilo que pouco conhece profundamente. Achando-se sábio, mas não sabendo a mísera metade do que os pequenos (loucos, infantis, ou ingênuos) sabem.
 
@@ -2078,29 +2035,31 @@ Colossenses 3
 
 - Homens tem mais razão do que é emoção, é mais o coração vigiado pelo racional que possuem, e nessa vigia ao coração devem deixar humildemente o Amor crescer na alegria, esperança, paz/paciência, dor, bases do Amor de Deus, e saber vigiar e tirar do coração quando tiver o medo, facilidades, tristeza, raiva egoísta, ansiedades, angústias, tudo que gera ódio.
 
-- Mulheres são amor puro, mas com o passar do tempo se desvirtuam em vaidades e luxúria, sendo submissas aos homens e passando a absorver aquilo que de pior tem no homem, o egoísmo. Exceto nos casos em que esse egoísmo já vem de berço. E na busca por competição se iludem achando que conseguirão competir, fisicamente é nítido que perdem, e mental e emocionalmente tem momentos oportunos que demonstram valor, mas pela natureza hormonal não se mantém estável, e em termos de frieza o homem sempre vai superar a mulher.
+- Mulheres são amor puro, mas com o passar do tempo se desvirtuam em vaidades e luxúrias, sendo submissas aos homens e passando a absorver aquilo que de pior tem no homem, o egoísmo. Exceto nos casos em que esse egoísmo já vem de berço. E na busca por competição se iludem achando que conseguirão competir, fisicamente é nítido que perdem, e mental e emocionalmente tem momentos oportunos que demonstram valor, mas pela natureza hormonal não se mantém estável, e em termos de frieza o homem sempre vai superar a mulher.
 
-- Mulher mais emoção do que razão, é preciso ser mais racional em vigiar o coração, e saber filtrar no coração as coisas boas como alegria, esperança e paz/paciência, e saber tirar o medo, tristeza, raiva egoísta, ansiedades e angústias.
+- Mulher é mais emoção do que razão, é preciso ser mais racional em vigiar o coração, e saber filtrar no coração as coisas boas como alegria, esperança e paz/paciência, e saber tirar o medo, tristeza, raiva egoísta, ansiedades e angústias.
 
 - Necessário o homem saber amar, e a mulher saber absorver aquilo que o homem tem de bom, e não o amor próprio(egoísmo/frieza).
 
 <!-- TOC --><a name="níveis-de-maturidades"></a>
 ##### Níveis de Maturidades
 
-- Abaixo segue níveis de maturidade para um relacionamento, de tal modo que o 10(ou nível máximo) é Jesus(maturidade além da carne, vai na maturidade espiritual), e mais baixo é a pior pessoa do mundo. Níveis 7 ou 6 talvez sejam o máximo de uma maturidade carnal. Mas repito, sem Deus, nada se sustenta.
+- Abaixo segue níveis de maturidade para um relacionamento, de tal modo que o 10(ou nível máximo) é Jesus(maturidade além da carne, vai na maturidade espiritual), e as mais abaixo são as pessoas mais vulneráveis do mundo. Níveis 7 ou 6 talvez sejam o máximo de uma maturidade carnal, mas repito, sem Deus, nada se sustenta.
 
 - A maturidade da carne sem uma crença em Deus levará ao mais profundo egoísmo. Enquanto alguns fingem não serem egoístas se achando virtuosos, mas no fundo só pensam em ser felizes, se divertir e ter seus desejos saciados, sejam eles quais forem (relacionamentos, troféus, status, dinheiro, cargos, etc). O mais maduro na carne irá afirmar que é egoísta e que realmente só faz tudo a sua própria vontade, e que considera apenas as pessoas ou coisas que lhe somem, aqueles que lhe fazem apenas bem, jamais irá se doar para ajudar um inimigo, ou alguém que não lhe soma.
 
-    - 10- consegue com TODOS
-    - 9- acima de 1
-    - 8- acima de 2
-    - 7- acima de 3
-    - 6- acima de 4
-    - 5- acima de 5
-    - 4- acima de 6
-    - 3- acima de 7
-    - 2- acima de 8
-    - 1- Apenas o 10
+- Sintonia de relações com base na maturidade:
+
+    - 10: consegue com TODOS
+    - 9: acima de 1
+    - 8: acima de 2
+    - 7: acima de 3
+    - 6: acima de 4
+    - 5: acima de 5
+    - 4: acima de 6
+    - 3: acima de 7
+    - 2: acima de 8
+    - 1: Apenas com o 10
 
 <!-- TOC --><a name="maturidade-divisão-homem-x-mulher"></a>
 #####  Maturidade: divisão homem x mulher
@@ -2113,8 +2072,8 @@ Colossenses 3
     - 6- Homem maduro espiritualmente
 
 - Homens e mulheres imaturos são as pessoas superficiais que não tem noção das coisas básicas, ou tem orgulho em excesso, ou timidez, e por isso da errado. Quanto mais imaturo, mais necessário alguém de maturidade.
-- Homens e mulher madura na carne, podem ser fazer dar certo um para o outro, dependendo dos casos conseguem talvez ficar com alguém imaturo, fazendo o imaturo amadurecer se for alguém que não tenha traumas, nem paranoias.
-- Homem e mulher evoluídos espiritualmente, esses conseguem converter qualquer coração.
+- Homens e mulheres maduras na carne, podem se fazer dar certo um para o outro, dependendo dos casos conseguem talvez ficar com alguém imaturo, fazendo o imaturo amadurecer se for alguém que não tenha traumas, nem paranoias.
+- Homens e mulheres evoluídos espiritualmente, esses conseguem converter qualquer coração.
 
 <!-- TOC --><a name="alívios-ilusórios"></a>
 ##### Alívios ilusórios
@@ -2124,13 +2083,13 @@ Colossenses 3
 <!-- TOC --><a name="sobre-encontrar-a-pessoa-certa"></a>
 ##### Sobre encontrar a pessoa certa
 
-- Você atrai quem você eh, se você só se ver em uma sequência de relacionamentos ruins, talvez seja reflexo de quem você eh, já parou de julgar os outros e passou julgar a si mesmo ? Qual dos pecados capitais mais você se ver ? Gula, Preguiça, Luxúria, Inveja, esses 4 primeiros a maioria cai fácil em quase todas as ações na vida, às vezes tem disciplina em algo mas em outra coisa procrastina, muitos na fé inclusive, mas também não são esses os defeitos mais difíceis de superar. Ganância, Soberba e Ira, muito comum em quase todo mundo também, mas também os mais difíceis de excluir de si, pois na sutileza eles adormecem e se escondem. Se você tem múltiplas personalidades boas ou más, provavelmente vai atrai pessoas boas ou más, se você só tem defeitos, isso pode explicar porque só atrai dedo podre.
+- Você atrai quem você eh, se você só se ver em uma sequência de relacionamentos ruins, talvez seja reflexo de quem você eh, já parou de julgar os outros e passou julgar a si mesmo ? Qual dos pecados capitais mais você se ver ? Gula, Preguiça, Luxúria, Inveja, esses 4 primeiros a maioria cai fácil em quase todas as ações na vida, às vezes tem disciplina em algo mas em outra coisa procrastina, muitos na fé inclusive, mas também não são esses os defeitos mais difíceis de superar. Ganância, Soberba e Ira, muito comum em quase todo mundo também, mas também os mais difíceis de excluir de si, pois na sutileza eles adormecem e se escondem. Se você tem múltiplas personalidades boas ou más, provavelmente vai atrair pessoas boas ou más, se você só tem defeitos, isso pode explicar porque só atrai dedo podre.
 
-- Uma vez escutei um padre dizendo que  quando o mesmo era criança queria se casar cedo, e um sábio lhe disse, escreva em um papel uma lista com título "futura esposa" com todas as características que você quer nessa pessoa, o padre escreveu 30 coisas, como ser leal, fiel, devota a Deus, posturada publicamente, etc, coloque coisas honrosas e não futilidades. Depois de ter escrito ele entregou a lista para o sábio, e o sábio disse: agora mude o título e coloque "Futuro Eu". 
+- Uma vez escutei um padre dizendo que quando o mesmo era criança queria se casar cedo, e um sábio lhe disse, escreva em um papel uma lista com o título "Futura Esposa" com todas as características que você quer nessa pessoa, o padre escreveu 30 coisas, como ser leal, fiel, devota a Deus, posturada publicamente, compreensível, paciente, verdadeira, etc, coloque coisas honrosas e não futilidades passageiras. Depois de ter escrito ele entregou a lista para o sábio, e o sábio disse: agora mude o título e coloque "Futuro Eu".  Antes de exigir muito de alguém tenha pelo menos algo a mais do que futilidades carnais e passageiras a oferecer.
 
-- Mas essa sabedoria é incompleta, no processo de conhecer alguém, ela não virá pronta e na mesma maturidade que você,  relacionamento se constrói, se você já é a pessoa da lista que você desejava, você concluiu a primeira etapa, a segunda e mais difícil será fazer da pessoa que você escolheu para ficar ao seu lado se tornar essa pessoa também da lista que você desejou. Não esquecer de conviver com essa pessoa na castidade, pois só assim você terá a certeza de que é dela que você gosta, e não de algo que ela lhe proporciona como, sexo, afeto, status, conforto, fama, etc.
+- Mas essa sabedoria é incompleta, no processo de conhecer alguém, ela não virá pronta e na mesma maturidade que você, relacionamento se constrói, se você já é a pessoa da lista que você desejava, você concluiu a primeira etapa, a segunda e mais difícil será fazer da pessoa que você escolheu para ficar ao seu lado se tornar essa pessoa também da lista de virtudes que você desejou, o que requer paciência além da sabedoria. Não esquecer de conviver com essa pessoa na castidade e dificuldades, pois só assim você terá a certeza de que é dela que você gosta de verdade, e não de algo que ela lhe proporciona como: sexo, afeto, status, conforto, fama, etc. Ponto de atenção: apesar da paciência em tentar transformar em Cristo a outra pessoa, faça no desapego sem esperar nada em troca quando a mesma demonstra falta de reciprocidade, quando um não quer dois não brigam.
 
-- No inferno existirá pessoas de grandes virtudes, mas nenhum humilde. Então cuidado com o discurso de dizer que você acha que merece alguém à sua altura com grandes virtudes.
+- No inferno existirá pessoas de grandes virtudes, mas nenhum humilde. Então cuidado com o discurso de dizer que você acha que merece alguém à sua altura com grandes virtudes, pois se você fosse mesmo não filtraria ninguém, mas sim tornaria virtuoso(a) até um mendigo(a) que estivesse ao seu lado. E se você falha já no primeiro mandamento de Amar a Deus sobre todas as coisas, inclusive falha em amar mais a Deus do que a própria vida, pode tirar seu cavalinho da chuva que suas virtudes nem são tão fortes assim.
 
 - A luxúria se torna um obstáculo em relacionamentos quando um dos lados (geralmente a mulher, mas o inverso também pode ser verdade) se coloca em uma posição de que acha que tem de ser conquistado, nesse momento, a mulher se torna um objeto da luxúria, um troféu, para um homem de ganância e malícia movido a impulsos, dizer e mostrar o que a mulher quer ouvir não é algo difícil, a grande questão eh, esse relacionamento baseado em um tratando a si mesmo como troféu e outro como conquistador vai dar certo, ou vai durar para sempre ? Para o conquistador vejo alguns caminhos: 
 
@@ -2157,14 +2116,26 @@ Colossenses 3
 
 - Para quem se ver em um relacionamento baseado em carência ou gratidão, e não um amor puro de verdade, destrua está casa que foi construída em meio a Areia, pois na primeira tempestade você vai ver como ela é frágil. Reconstrua sua casa(relação) em cima da rocha(Jesus Cristo) e você vai ver como essa rocha é sólida, e quando a tempestade vier nada vai derrubar sua casa. O senhor sempre está de braços aberto. Observação: ir a igreja ou frequentar a missa só por ir, só para manter aparência não quer dizer nada, tem de ser verdade.
 
-- Muitos casais com seus relacionamentos de 5, 10, 15, 20 anos em sua soberba acham que não precisam de Deus, deixam para lá, passam a viver de aparência, angústias como: "eu preciso cuidar dos meus filhos", "o que os vizinhos vão falar", "contas para pagar", e as angústias e aflições só pioram. Aí um dia as coisas começam a dar errado, um furacão e tempestade vem, quase que todos os problemas de de uma vez, e depois se enchem no discurso "o amor não existe". Vocês nunca se amaram de verdade para serem honestos, só viviam amando as benesses do prazeres momentâneos que para alguns duram anos, bendito seja Deus por isso. Mas nunca agradecem de coração o que Deus lhe dá, nunca são humildes para reconhecer o quanto são pequenos, e aqui pouco importa se pecas ou não , ou se obedece a todos os mandamentos, quando o seu coração estiver em Deus, nem se lembrarás do pecado, não verás o sexo como um pecado, mas como uma dádiva e presente de Deus no relacionamento. Não ficarás julgando com maus olhos, mas sim vendo com bons olhos e sempre para o lado positivo. Não terá temor pois saberá que sempre o senhor estará contigo. Sim, é verdade, não se pode ser ingênuo, mas maldita seja uma mente cheia de aflições, preocupações e paranoias que se ensoberbece dizendo que é experiente e que sabe das coisas da vida, mas nada sabe, a não ser do seu próprio mundo imaginário, seu complexo de inferioridade aparece quando se tem necessidade de mostrar que sabe, de mostrar que consegue algo, nesse momento toda sua vulnerabilidade fica evidente. Quem sabe de verdade, não precisa de aplausos, não precisa mostrar-se quem é, e só decide fazer quando se ver necessário, por mais desgastante que seja.
+- Muitos casais com seus relacionamentos de 5, 10, 15, 20 anos em sua soberba acham que não precisam de Deus, deixam para lá, passam a viver de aparência, angústias como: "eu preciso cuidar dos meus filhos", "o que os vizinhos vão falar", "contas para pagar", e as angústias e aflições só pioram. Aí um dia as coisas começam a dar errado, um furacão e tempestade vem, quase que todos os problemas de uma vez, e depois se enchem no discurso "o amor não existe". Vocês nunca se amaram de verdade para serem honestos, só viviam amando as benesses do prazeres momentâneos que para alguns duram anos, bendito seja Deus por isso. Mas nunca agradecem de coração o que Deus lhe dá, nunca são humildes para reconhecer o quanto são pequenos, e aqui pouco importa se pecas ou não , ou se obedece a todos os mandamentos, quando o seu coração estiver em Deus, nem se lembrarás do pecado, não verás o sexo como um pecado, mas como uma dádiva e presente de Deus no relacionamento. Não ficarás julgando com maus olhos, mas sim vendo com bons olhos e sempre para o lado positivo. Não terá temor pois saberá que sempre o senhor estará contigo. Sim, é verdade, não se pode ser ingênuo, mas maldita seja uma mente cheia de aflições, preocupações e paranoias que se ensoberbece dizendo que é experiente e que sabe das coisas da vida, mas nada sabe, a não ser do seu próprio mundo imaginário, seu complexo de inferioridade aparece quando se tem necessidade de mostrar que sabe, de mostrar que consegue algo, nesse momento toda sua vulnerabilidade fica evidente. Quem sabe de verdade, não precisa de aplausos, não precisa mostrar-se quem é, e só decide fazer quando se ver necessário, por mais desgastante que seja.
 
-- Aí começa um discurso de que homem não presta, ou que do outro lado que não da para confiar em mulher, blablabla. Dois cegos, de uma lado um carente atrás de afeto, conforto e sexo, e do outro um malandro que percebeu logo cedo que o outro lado só era carente. Obviamente que o chifre vai vim. E continuem glorificando o Amor próprio, vai dar muito certo essa sociedade (ironia).
+- Aí começa um discurso de que homem não presta, ou do outro lado que não da para confiar em mulher, blablabla. Dois cegos, de uma lado um carente atrás de afeto, conforto e sexo, e do outro um malandro que percebeu logo cedo que o outro lado só era carente. Obviamente que o chifre vai vim. E continuem glorificando o Amor próprio, vai dar muito certo essa sociedade (ironia).
 
 - Muitas mulheres se iludem que ao serem alvejadas por vários homens isso às torna mulheres de valor, entendam, homens separam 2 tipos de mulheres, e às vezes alguns acabam se confundindo e errando nas escolhas, que são:
 
     - 1- mulher marmita: a mulher marmita muitas vezes é só uma namorada ou ficante (casual) para não ficarmos na seca (sem sexo), mas nunca pretendemos nos casar, o que acontece às vezes é um filho no meio da relação, que  obriga muitos a tentar fazer dar certo, o que explica a maioria de mães e pais solteiros, nesses casos o grande obstáculo é falta de humildade, castidade, Amor e fé em Deus para fazer dar certo algo que começou totalmente errado. A mulher marmita é nitidamente a mulher supérflua, soberba, orgulhosa, pomposa, sem humildade, em que a personalidade é praticamente insuportável, em que seu valor é baseado apenas na aparência, ideal para exibição entre os amigos, para status social, tipicamente uma namorada troféu, que assim que as rugas aparecem são descartadas por uma versão mais nova. Não é o homem que constrói essa mulher, ela mesma quem se coloca na prateleira dessa forma.
     - 2- mulher para casar: essa além da aparência, o homem olha principalmente a humildade, serenidade, lealdade, a questão singela, pode até ser impulsiva, emocionada e medrosa às vezes, o que é normal, mas com um auto controle, não agressividade e principalmente humildade(auto avaliação) para conversas difíceis, essenciais para uma boa convivência que dure de fato até a morte.
+
+<!-- TOC --><a name="flerte"></a>
+##### Flerte
+
+- O truque esta nos olhares, nas cortesias simples e comuns das respectivas culturas, num simples bom dia, no trato com o outro, e principalmente nos detalhes da reciprocidade.
+
+<!-- TOC --><a name="introvertido-x-extrovertido"></a>
+##### Introvertido x Extrovertido
+
+- Pessoas introvertidos geralmente são mais reservadas e atenciosas em uma relação, o que facilita os caminhos de um relacionamento estável, para quem escolhe um parceiro deste modo, os caminhos são menos difíceis.
+
+- Pessoas extrovertidas tem um problema sério, falta de foco por muitas vezes escolher os caminhos da dopamina, mas a maioria das opções são passageiras e superficiais. Pessoas extrovertidas são pessoas com dúvidas, presunção/equívocos, confusos em si mesmos e em relacionamentos por serem abertos exageradamente, escolher alguém assim como parceiro é necessário paciência, pois a pessoa não tem muito foco e é preciso passar calma para essas pessoas e confiança, mas cuidado para não mimar e ser apenas alguém que serve, mesmo que você sempre faça o bem sem esperar nada em troca. Se você é o extrovertido, tudo bem ser assim, mas tem de saber manter o foco para ter maturidade e intensidade nas relações, por isso a necessidade de escolher alguém que goste de verdade já na troca de olhares, e não no corpo, escolher alguém pelo que o outro tem no coração e não pelas vaidades superficiais, e as demais pessoas você amar como a um próximo(amigo).
 
 <!-- TOC --><a name="beleza"></a>
 ##### Beleza
@@ -2198,11 +2169,11 @@ Mateus 19
 
 - O que aflige homens e mulheres é a dúvida de escolher a pessoa errada para se casar, então pretendem realizar sexo antes e viver bons momentos.
 
-- Para a mulher: se você não estiver errando, não pensando em outras opções de pretendentes, se não estiver se comportando como um objeto sexual apenas, a grande dúvida sua será: se eu me entregar, será que depois ele vai me largar? será que ele tem outras opções? Será que vai ser fiel ?
+- Para a mulher: se você não estiver errando, não pensando em outras opções de pretendentes, se não estiver se comportando como um objeto sexual apenas, a grande dúvida será: se eu me entregar, será que depois ele vai me largar? será que ele tem outras opções? Será que vai ser fiel ?
 
-- Para o homem: se você não estiver sacaneando a pessoa, também não pensando em outros pretendentes, não procurando tratar ela como um simples objeto sexual apenas, a grande dúvida será: será que ela vai me tomar metade dos bens, será que vou ter de pagar pensão para ela ? Será que ela é fiel ? Será que eu sou a primeira opção dela ?
+- Para o homem: se você não estiver sacaneando a pessoa, também não pensando em outras pretendentes, não procurando tratar ela como um simples objeto sexual apenas, a grande dúvida será: será que ela vai me tomar metade dos bens? será que vou ter de pagar pensão para ela ? Será que ela é fiel ? Será que eu sou a primeira opção dela ? será que vai me largar nas primeiras dificuldades ?
 
-- Se praticar sexo antes do casamento na Igreja, já trate este ato como união definitiva perante Deus. E que só irão se divorciar/separar em caso de adultério.
+- Se praticar sexo antes do casamento na Igreja, já trate este ato como união definitiva perante Deus, pois se um filho vinher significa que foi selado. E que só irão se divorciar/separar em caso de adultério desde que não tenha sido selado através de um filho.
 
 <!-- TOC --><a name="relacionamento"></a>
 ##### Relacionamento
@@ -2232,7 +2203,7 @@ Efésios 5
     - Se foi traição, já é algo diferente, que explica que consequentemente ela não está lhe amando, seja porque você não a ama também, ou porque ela não é mais submissa a você, independente da energia que você passa de amor, raiva, ou ódio. Importante notar que mulheres impulsivas, amam quando são amadas, odeiam e sentem raiva quando são odiadas. Mulheres impulsivas precisam trabalhar o auto controle, para quando absorverem essa energia de vossos maridos, não sejam tentadas a trai-los.
     - No coração de quem traiu não existia de verdade um amor a Deus, pois quem trai não honra a Deus, não mantém sua palavra, se nem a Deus, imagina ao marido/esposa. Ama tanto a si mesmo e seus prazeres que só olham o que o outro pode lhe proporcionar, e nunca a dor que podem causar no próximo.
 
-- Amar é uma escolha a partir do momento que decides amar o próximo, seja ele quem for e mais de uma como manda a Deus. Amar é uma escolha quando decides ter paciência e conviver com uma pessoa. Mas e o amor do matrimônio? Se evoluíste no amor ao próximo, talvez consigas evoluir no Amor em matrimônio.
+- Amar é uma escolha a partir do momento que decides amar o próximo, seja o próximo quem for e mais de uma pessoa como manda Deus. Amar é uma escolha quando decides ter paciência e conviver com uma pessoa. Mas e o amor do matrimônio? Se evoluíste no amor ao próximo, talvez consigas evoluir no Amor em matrimônio.
 
 - Amar é uma escolha, e é lindo quando uma pessoa ama a outra loucamente, não no sentido desordenado e incontrolável movido a prazeres, mas no sentido de que deixa a outra livre se assim for o desejo da outra pessoa, mas também será sempre intenso e entusiasmado quando for fazer algo para aquela pessoa amada, isso não é infantilidade ou ingenuidade (apesar de algumas pessoas não verem malícia, o truque é sempre ver e fingir ou dar o benefício da dúvida), pois o contrário dessa infantilidade, que é considerado maduro aos olhos da carne, são as pessoas frias, secas, ou a pior de todas, as mornas ou sem intensidade que fingem ser o que não são, e todas guiadas pelo medo de não querer sofrer. É preciso coragem e loucura na serenidade, só os loucos serenos em Deus são verdadeiramente felizes, pois tacaram o foda-se para toda carga da vaidade dos olhos da carne.
 
@@ -2295,7 +2266,7 @@ Mateus 9
 
 - Quão fortes tu achas que és por deixar parentes/amizades, que tu diz que não é mais para ti ? Se tu és tão bom, tu não deixará a amizade que considera que está no erro, talvez em certos momentos não estarás mais presente por você ter novos rumos, e nisso faz sentido não ir em certos momentos. Mas largar de vez ? Abandonar ? Tu não é este ser "Foda"/"Super" todo não, deixa esse teu nariz empinado. O que tu mostra é que não é você quem influência o ambiente e sim o ambiente que lhe influência. No final de contas tu continua sendo fraco. Quem garante que Jesus não iria em um puteiro ? Se viste Jesus um dia no puteiro, e pensar que ele se perdeu, não é ele quem está perdido, mas tu, que olhaste com maus olhos cheio de negatividade, porque no dia que ele for será para entender a dor daqueles doentes que procuram felicidades nas coisas do mundo e não no senhor Deus. Ao menos se reconheça fraco, ajoelhe-se perante ao pai, e peça sempre para ser mais forte que as tentações. Pois o pecado do amor próprio não se reflete apenas em promiscuidades, mas também na soberba e abandono.
 
-- Mas em verdade também seja dita, se reconheces que não consegue suportar tal ambiente com pessoas ruins ao redor, reze a Deus para que ele lhe dar paciência e sabedoria para superar as adversidades, e para ter momentos mais só, para trabalhar corpo, mente e espírito(coração), talvez através de leituras bíblicas, poéticas de lutas de bem contra mal, ou filmes poéticos também, músicas calmas de piano.
+- Mas em verdade também seja dita, se reconheces que não consegue suportar tal ambiente com pessoas ruins ao redor, reze a Deus para que ele lhe dar paciência e sabedoria para superar as adversidades, e para ter momentos mais só, para trabalhar corpo, mente e espírito(coração), talvez através de leituras bíblicas, poéticas de lutas de bem contra mal, ou filmes poéticos também, músicas calmas de piano. Necessário reconhecer suas misérias e limitações para talvez se recolher, praticar o silêncio e se fortalecer em Cristo.
 
 - É preciso reconhecer quem tu és, se é o que influência, ou o que é influenciado.
 
@@ -2351,6 +2322,8 @@ Essas palavras de Paulo, embora refletindo uma perspectiva prática e cultural d
     - 1- Primeiramente eh saber honrar seu atual relacionamento e sua palavra,
     - 2- E segundo é saber que essa energia e pulsação é uma escolha de ambos (amar é uma escolha) que fazem parte do casamento, mas se apenas um decide ter energias pulsantes ao olhar a vida dando graças a Deus, realmente é como carregar uma cruz, mas que mesmo que seja você sozinho amando a Deus sobre todas as coisas e não seu par, você deve carregar a cruz das suas escolhas com Fé e Amor a Deus, que ele fará com que nada pese. Por isso a importância de conhecer alguém profundamente antes de se casar, para não se arrepender de lá na frente ao conhecer outras pessoas de energias pulsantes você não fique se contorcendo e achando que fez a escolha errada, a única escolha errada feita é se afastar de Deus ao não Amar a ele sobre todas coisas, ao não agradecer a Deus por tudo, ao mentir para se mesmo e dizer Ama a Deus mas ainda se preocupa com o que vai comer ou com o que vai beber, sendo que Deus na vontade dele nos fornece tudo que precisamos e não necessariamente o que desejamos, e também o erro mais comum de não honrar sua palavra e sair por aí abandonando sua palavra e achar que a vida é viver de prazeres momentâneos e dopaminérgicos, sendo que pode ser prazeroso honrar a sua palavra/escolha se feito com Amor, por mais que seja o pão que o diabo amassou.
 
+- A grande força da mulher é suportar a dor mesmo sem ser reconhecida como tal. É suportar e não se gabar disto, mas reconhecer que precisa de ajuda e ser sábia em saber pedir com educação. Mas ao se gabar ou exigir reconhecimento de sua força perde toda sua credibilidade pois acha que só ela que sofre, mas tanto homens como mulheres tem a sua luta de cada dia. Não adianta falar de empatia e olhar só para o próprio umbigo.
+
 <!-- TOC --><a name="divórcio"></a>
 ##### Divórcio
 
@@ -2361,24 +2334,34 @@ Mateus 5
 
 Mateus 19
 
-1. E aconteceu que, concluindo Jesus estes discursos, saiu da Galiléia, e dirigiu- se aos confins da Judéia, além do Jordão;
-2. E seguiram-no grandes multidões, e curou-as ali.
-3. Então chegaram ao pé dele os fariseus, tentando-o, e dizendo-lhe: É lícito ao homem repudiar sua mulher por qualquer motivo?
-4. Ele, porém, respondendo, disse-lhes: Não tendes lido que aquele que os fez no princípio macho e fêmea os fez,
-5. E disse: Portanto, deixará o homem pai e mãe, e se unirá a sua mulher, e serão dois numa só carne?
-6. Assim não são mais dois, mas uma só carne. Portanto, o que Deus ajuntou não o separe o homem.
-7. Disseram-lhe eles: Então, por que mandou Moisés dar-lhe carta de divórcio, e repudiá-la?
-8. Disse-lhes ele: Moisés, por causa da dureza dos vossos corações, vos permitiu repudiar vossas mulheres; mas ao princípio não foi assim.
-9. Eu vos digo, porém, que qualquer que repudiar sua mulher, não sendo por causa de fornicação, e casar com outra, comete adultério; e o que casar com a repudiada também comete adultério.
-10. Disseram-lhe seus discípulos: Se assim é a condição do homem relativamente à mulher, não convém casar.
+1. Após esses discursos, Jesus deixou a Galileia e veio para a Judeia, além do Jor­dão.
+2. Uma grande multidão o seguiu e ele curou seus doentes.
+3. Os fariseus vieram perguntar-lhe para pô-lo à prova: “É permitido a um homem rejeitar sua mu­lher por um motivo qualquer?”.
+4. Respondeu-lhes Jesus: “Não lestes que o Criador, no começo, fez o homem e a mulher e disse:
+5. Por isso, o homem deixará seu pai e sua mãe e se unirá à sua mulher; e os dois formarão uma só carne?*
+6. Assim, já não são dois, mas uma só carne. Portanto, não separe o homem o que Deus uniu”.
+7. Disseram-lhe eles: “Por que, então, Moisés ordenou dar um documento de divórcio à mulher, ao rejeitá-la?”.*
+8. Jesus respondeu-lhes: “É por causa da dureza de vosso coração que Moisés havia tolerado o repúdio das mulheres; mas no começo não foi assim.
+9. Ora, eu vos declaro que todo aquele que rejeita sua mulher, exceto no caso de matrimônio falso, e desposa uma outra, comete adultério. E aquele que desposa uma mulher rejeitada, comete também adultério”.
+10. Seus discípulos disseram-lhe: “Se tal é a condição do homem a respeito da mulher, é melhor não se casar!”.
+11. Respondeu ele: “Nem todos são capazes de compreender o sentido dessa palavra, mas somente aqueles a quem foi dado.
+12. Porque há eunucos que o são desde o ventre de suas mães, há eunucos tornados tais pelas mãos dos homens e há eunucos que a si mesmos se fizeram eunucos por amor do Reino dos Céus. Quem puder compreender, compreenda”.
 
 - Divórcio apenas em caso de fornicação (traição), exceto em caso de filho. Em caso de filho, não existe divórcio a não ser através da morte do PARCEIRO. Se houve traição e existe um filho, não deve haver divórcio até a morte do PARCEIRO, mas seria prudente morar separados, e um talvez não mais visitar o outro. Estarão casados mesmo morando separados, e se um tiver relação fora do casamento será adultério.
 
-- Quem tem filho com mais de uma pessoa já está morto, e os parceiros(as) são viúvos(as) com filho. Os parceiros(as) traídos não devem desejar nada vindo do que está morto, mas devem manter sua castidade pois o morto ainda está vivo em carne. Os filhos do morto podem sempre ver o pai. O morto deve se mortificar em seu pecado e ressuscitar em Cristo e viver como viúvo(a), mas reconhecendo e zelando pelos filhos, e também principalmente manter a castidade. A importância da castidade é porque ninguém dessas relações soube valorizar o presente de Deus que é sexo, e profanou o ato do sexo e consequentemente o templo de Deus (corpo do homem).
+- Quem tem filho com mais de uma pessoa já está morto, e os parceiros(as) são viúvos(as) com filho. Os parceiros(as) traídos não devem desejar nada vindo do que está morto, mas devem manter sua castidade pois o morto ainda está vivo em carne. Os filhos do morto podem sempre ver o pai. O morto deve se mortificar em seu pecado e ressuscitar em Cristo e viver como viúvo(a), mas reconhecendo e zelando pelos filhos e pelo pai/mãe de seus filhos, e também principalmente manter a castidade. A importância da castidade é porque ninguém dessas relações soube valorizar o presente de Deus que é o sexo, e profanou o ato do sexo e consequentemente o templo de Deus (corpo do homem).
+
+- Filhos de um adultério/(segundo parceiro) de seus pais não devem se sentir filhos do mal por isto, pois quem concede a vida é Cristo(Deus), pois este é o Deus que permite e abençoa flores brotarem no deserto do pecado. Aos pais carnais cabe reconhecer suas misérias e não voltar ao erro para não ser uma má influência para seus filhos.
 
 - Para quem foi traído, e possa ter o divórcio/anulação aceito (exceto nos casos de filhos, já citados em outra oportunidade nestes textos) deve-se: perdoar, não ter ressentimento e querer viver a castidade. Criar um tribunal de divórcio/anulação para analisar profundamente se as característica necessários estão presentes no solicitante do divórcio/anulação, e que a mesma assine um contrato de consciência com Deus afirmando possuem essas características, pois só assim podemos dizer que Deus de fato anulou, ou nunca abençoou, o que anteriormente foi supostamente unido. Mas não se pode tratar o casamento e divórcio com tanta promiscuidade e apenas necessidades de carência, pois se for assim para manter o casamento, era melhor nem sequer existir, mas aí estaríamos nós mesmos concordando em condenar a humanidade (a criação de Deus) à extinção, quando nem mesmo Deus desistiu de nós.
 
 - Para quem foi traído, sobre o divórcio ou anulação perante a igreja. Para quem foi traído a grande questão é do porque você quer o divórcio/anulação? Alguns responderão, porque fui traído, é uma resposta superficial de quem não perdoou e ainda tem ressentimento. É preciso perdoar e não ter ressentimento, isso não significa voltar a ser como antes, mas significa não guardar mais mágoa, cumprimentar a pessoa sem rancor, sem querer ficar remoendo um assunto passado. Se após você perdoar e não ter mais ressentimento, também se ver em paz na castidade, não ficando nem mais com seu marido/esposa pois o mesmo demonstrou que precisa tratar a fraqueza da carne, a grande questão é se você quer se divorciar/anular para continuar transando agora com outra(o), ou se é de fato para amar outro(a). Se for para continuar tendo sexo, aí eu concordo que divórcio e anulação nem deve existir, você não é melhor do que quem traiu, só teve a sorte de não trair antes, ou talvez já traiu e só não foi descoberto.
+
+- Ter vários ciclos de relacionamentos vão lhe deixar lembranças e consequentemente traumas que você não vai assumir que foram traumas. Esses relacionamentos passados vão atrapalhar você em construir algo sólido com alguém que realmente vale a pena.
+
+- Ciclos de relacionamentos pessoais não se encerram, eles ficam lá carentes de preenchimento, o problema é que muitos tentam preencher com prazeres e superficialidades na vida, e nunca sabem ao certo como preencher pois estão longe de Deus e sem intimidade com o mesmo.
+
+- Não existe ex-amigo, ex-marido, ex-esposa, ex-amor, você ou a outra pessoa que se relacionaram apenas por interesse do que o outro proporcionava, e nunca de fato foi o que se nomeia como ex. Se foi real então não foi ex, ainda é atual, você só deu um tempo e não quer admitir devido a mágoa e orgulho ferido no coração. Você fica procurando justificativas e validações alheias para apoiarem as misérias do ressentimento que ainda guarda no peito.
 
 <!-- TOC --><a name="dar-a-outra-face-após-a-traição-no-relacionamento"></a>
 ##### Dar a outra face após a traição no relacionamento
@@ -2399,6 +2382,19 @@ Mateus 19
     - 2: ou caso não tenha interesse, pode ficar achando que você quem teria interesse escondido e essa pessoa irá fugir. Nesse caso em que a pessoa tem medo de você, e lhe deixa no vácuo, não tem como ajudar, pois o medo a domina, o melhor seria falar com um outro amigo dessa pessoa para tentar abrir os olhos dela.
 
 - Para quem seguiu com outro e quer ter a certeza que esse novo relacionamento não é desordenado como na maioria do relacionamentos modernos, só viver seguindo os mandamentos de Deus, desde que esse novo relacionamento não seja um adultério por tudo que foi dito nesta secção de divórcio.
+
+<!-- TOC --><a name="ajudar-quem-está-quebrado"></a>
+##### Ajudar quem está quebrado
+
+- Para poder ajudar a consertar alguém quebrado, você tem de estar blindado, não pela frieza (criada pelo ciclo de Ódio e desprezo ao mundo), mas pelo amor e paciência. Se você for frio, você não se importará em abandonar a pessoa quando o Ódio bater a porta. Se você for superficial, ligado a coisas planas (vaidades, promiscuidades/luxúrias, ganâncias, invejas, gulas, orgulhos, preguiças, manipulações/mentiras) você está tão doente quanto a pessoa que você quer ajudar. Mas se você está no amor e paciência de Deus, não existe limite para como você pode ajudar. Para ajudar, direcione a pessoa a deixar a vida regada em tudo aquilo que é plano e afasta as pessoas do divino. Tenha coragem e não medo.
+
+- Para ajudar, tenha a certeza que estais blindado, não pela frieza(criada pelo ciclo de Ódio e desprezo ao mundo), mas pelo amor e paciência de Deus, e que o caminho não está nas coisas planas, mas no divino.
+
+- Os ciclos da maldade, da desistência, do abandono, do medo tem de ser quebrado. É preciso mais bondade, resistência e coragem, essas qualidades tem de ser forjadas com Deus.
+
+- Você não pode abandonar aquilo que já não está mais com você. Faça sua parte, não abandone, mas seja transparente em dizer que enquanto não existir entrega, não de corpo, mas de vontade, não tem porque insistir em algo. Deixe ir, mas fique com a consciência tranquila de que fez sua parte, e para isso, é ter na mente que aceitaria de volta caso você esteja livre, mas não de forma morna, não com mentiras, não com manipulações, não sem entrega, não sem você sentir a pessoa.
+
+- Pessoas perdidas que não se reconhecem mais, que se doaram em coisas, como estudos, relações, trabalhos, projetos, fases, momentos que não mais se veem, e acham que tudo é uma fase e estão em momento de evolução, vocês não estão evoluindo se não sabem para onde estão indo. Vocês estão a deriva em uma bandeja em um mundo cheio de tubarões, suas vulnerabilidades estão estampadas, o cheiro de medo se exala e a maldade tende a lhe encontrar, seja a maldade de pessoas ou da sua própria mente atormentada com o mundo, eu só espero que Deus lhe fisgue antes. Tenha fé e rogue por sabedoria, verás a calmaria chegar, e o medo ir embora.
 
 <!-- TOC --><a name="dádivas"></a>
 ##### Dádivas
@@ -2456,7 +2452,7 @@ Tobias 6
 
 - Não duvidaria nada se na frieza e dureza do coração dos homens, em futuro que parece cada vez mais perto, as mulheres passassem a ser vendidas como escravas. E o tanto de direito que proclamam e empoderam fosse por água abaixo.
 
-- Enfatizo aqui para as mulheres, pois vocês são as que mais tem a perder, vocês nunca venceriam os homens nos prazeres da carne, por mais que se achem espertas e manipuladoras, o que mais lhe resta é escolher o amor de Deus, ou o amor da Luxúria. Já aos homens, muitos são os prazeres e possibilidades de poder, sua alma é a mais fácil de ser levada pelos prazeres do mundo, pois podem se deixar levar pela riqueza de governar nações, ser líderes de guerra, de esportes, de negócios, do acúmulo de dinheiro, poder, influência, infinitas são as possibilidades. O discurso de empoderamento, de tanto amor próprio vai vim com tanto fervor nas próximas gerações, que o amor ao próximo vai acabar, e mais uma vez, aí das mulheres nesses dias(aí das grávidas), pois nunca haverá tanto sofrimento .
+- Enfatizo aqui para as mulheres, pois vocês são as que mais tem a perder, vocês nunca venceriam os homens nos prazeres da carne, por mais que se achem espertas e manipuladoras, o que mais lhe resta é escolher o amor de Deus, ou então se condenar ao amor da Luxúria. Já aos homens, muitos são os prazeres e possibilidades de poder, sua alma é a mais fácil de ser levada pelos prazeres do mundo, pois podem se deixar levar pela riqueza de governar nações, ser líderes de guerra, de esportes, de negócios, do acúmulo de dinheiro, poder, influência, infinitas são as possibilidades. O discurso de empoderamento, de tanto amor próprio vai vim com tanto fervor nas próximas gerações, que o amor ao próximo vai acabar, e mais uma vez, aí das mulheres nesses dias(aí das grávidas), pois nunca haverá tanto sofrimento.
 
 - Mulheres vocês são só amor, Deus nunca pediu para vocês amarem, pois vocês são puro amor, mas o amor de vocês muitas vezes é corrompido pelos desejos da carne. Deus pediu para o homem amar, pois o homem tem dificuldade de amar e precisa ser paciente. Deus pediu para vocês serem submissas para que vocês deixem esse amor estável e ordenado em Cristo e a seu marido, que aprenda com o homem a ter um amor estável.
 
@@ -2546,7 +2542,8 @@ J. Robert Oppenheimer (o criador da monstruosa Bomba Atômica), que agora em nos
     - Explicação da regra: Toda mulher divertida (sendo vulgar com vestidos curtos, tatuagens, mini saias, shortinhos, vestidos colados, decotes, vaidades e superficialidades) será puta e de pouca confiança. Da mesma forma homens divertidos (ostentam riqueza, tatuagens, poder, pabulagens, vaidades e superficialidades). Mas nem toda(a) puta(o)  será divertida(o), adverte sobre a falsa aparência de quem continua não sendo confiável mas procura externalizar uma aparência de confiança, mas continua com o coração cheio de intenções impuras, sejam vaidades ou frieza/vazio.
     - Explicação da exceção: Mulheres ou homens que externalizam as vaidades na inocência ou ingenuidade e se sentem envergonhadas(os) ou perdidas(os) ao não enxergar a sagacidade das mulheres ou homens de mente poluída. As(os) que não sentem vergonha são as(os) que gostam de serem admiradas(os) em suas vaidades, que gostam de ter opções para caso da opção primária terminar errado, estás não são pessoas em exceção, em alguns casos podem até fingir vergonha, mas a energia do coração não escondem.
     - Conceito de puta(o) para o texto: quem vive de vaidades, luxúria, prazeres momentâneos e carnais, quem troca de parceiro e prazeres como quem troca de roupa, em última instância não terá mais as vaidades pois já enjoo delas, e agora só tem frieza e vazio.
-Visão Positiva:
+
+- Visão Positiva:
 
   - Amar a Deus e depois ao próximo mesmo com todos os defeitos, na esperança infinita de que o outro melhore.
 
@@ -2562,7 +2559,7 @@ Visão Positiva:
 
 - As bebidas e drogas criam uma falsa sensação de atração com outras pessoas, principalmente física, se não se sentes atraída pela pessoa, é porque não gosta verdadeiramente dela, talvez pelo estado de espiritual que ela esteja.
 
-- Quando se gosta de alguém de verdade, você não tem interesse escusos, interesses próprios, a simples presença e companhia da pessoa já é suficiente. Se queres alguém para demonstrar que não está só, não gostas de verdade, se queres pelos desejos da carne, não gostas de verdade, se queres pelo conforto/mimo não gostas de verdade, se queres pelo afeto, não gostas de verdade.
+- Quando se gosta de alguém de verdade, você não tem interesses escusos, interesses próprios, a simples presença e companhia da pessoa já é suficiente. Se queres alguém para demonstrar que não está só, não gostas de verdade, se queres pelos desejos da carne, não gostas de verdade, se queres pelo conforto/mimo não gostas de verdade, se queres pelo afeto, não gostas de verdade.
 
 - Quando se gosta de alguém de verdade, não importa os defeitos, não importa as qualidades, pois qualidades e defeitos podem ser copiados, pois podem com o tempo mudar, você gosta da pessoa de verdade mesmo que a pessoa mude.
 
@@ -2574,9 +2571,9 @@ Visão Positiva:
 
 - A maioria das pessoas estão apenas preenchendo carências e prazeres momentâneos iludindo talvez o parceiro. Você, homem ou mulher estaria disposto a ficar com seu parceiro aconteça o que acontecer ? Iram embora na primeira dificuldade? Nos momentos extremos também irá partir ? Se sua mulher tiver um câncer de mama você largará ela ? Se o homem com que você está perder tudo e for morar em um casebre você ainda continuará com ele ? Obviamente, além do sentimento ao próximo entra uma questão de caráter e honra da própria palavra. O quanto você gosta da pessoa do seu lado para na ausência dos prazeres mais satisfatórios você ainda continuar com ela, sendo apenas a companhia (sem sexo, sem conversa, sem luxo, sem conforto). Não me admira os infinitos CICLOS de traições e mentiras, todos buscando vaidades.
 
-- As pessoas que mais vão valer a pena, você não vai precisar de pressa, não vai ter pressão, não vai ter a preocupação de se não for você vem outro(a), a grande questão é se você estará pronto assim como o seu par, se não estiver, e desejar você as oportunidades promíscuas saiba diante mão e não se esqueça que nada de sólido virá de promiscuidades.
+- As pessoas que mais vão valer a pena, você não vai precisar de pressa, não vai ter pressão, não vai ter a preocupação de se não for você vem outro(a), a grande questão é se você estará pronto assim como o seu par, se não estiver, e você desejar as oportunidades promíscuas saiba diante mão e não se esqueça que nada de sólido virá de promiscuidades.
 
-- Quando se entra em um profundo ciclo de prazeres sexuais, de tal forma que não importa o quão ' ruim' ou parado na cama seja seu parceiro, você se desenvolveu a um ponto de ser tão bom que não importa o parceiro mais. O problema será quando tiveres tão mergulhado nessa promiscuidade que dificilmente conseguirás diferenciar a forma prazerosa do bom e do ruim.
+- Quando se entra em um profundo ciclo de prazeres sexuais, de tal forma que não importa o quão 'ruim' ou parado na cama seja seu parceiro, você se desenvolveu a um ponto de ser tão bom que não importa o parceiro mais. O problema será quando tiveres tão mergulhado nessa promiscuidade que dificilmente conseguirás diferenciar a forma prazerosa do bom e do ruim.
 
 - A ilusão de encontrar pessoas Compatíveis que compartilham de mesmos valores torna as pessoas meramente superficiais. Valores em comum são apenas UM dos alicerces, química/desejo também se fazem necessário. Os alicerces citados são difíceis mas ainda comuns, mas a interação de passar-se horas sem ficar enteado é raro. Depois disso, ter a tão sensível e amedrontadora emoção para deixar bem estruturado. O solo tem de ser sólido e não frágil, e nesse mundo apenas Deus é sólido. E Deus não é medo, tristeza, desconfiança, mentiras, vaidades, luxos, inveja, soberba do orgulho, raiva, gula, preguiça. Até uma Casa bem planejada e estruturada, se montado em solo frágil afunda.
 
@@ -2591,8 +2588,6 @@ Visão Positiva:
 - Idade avançada/experiência não é sinônimo de sabedoria, nem juventude de inovação, do que adianta ter experiências mas não aprender nada com elas, e continuar andando em círculos como em um Labirinto? Sabedoria vem de aprendizado de diferentes experiências ou observações, e principalmente da humildade de reconhecer que nada sabe apesar de todos os anos e experiências, estar disposto a aprender com seus erros e com ensinamentos/perspectivas de outras pessoas, e não de manter os mesmos erros repetitivamente em seu orgulho sem saber reconhece-los ou. admiti-los. Inovação vem do entusiasmo, curiosidade e desejo pelo desconhecido. Ao se deparar com o Novo, a resiliência é de extrema importância, pois será preciso conhecer a si mesmo, seus limites, e estar preparado da melhor forma possível para o desconhecido.
 
 - A quantidade de pessoas perdidas em suas próprias vaidades é assustadora. Mulheres que se colocaram em um pedestal de "mereço ser bem tratada", até compreendo o histórico de traumas que viveram ou observaram. Mas o seu discurso não carrega a energia de querer um homem para ama-lo, e sim de apenas ser servida. E servir não é apenas dinheiro ou mimos, também é sexo, carências afetiva, companhia do medo da solidão, tudo vaidades da carne. Homens que não enxergam isso acabam se magoando, os que enxergam, as usam e descartam como mero objeto, a briga passa a ser de quem é mais desapegado, não das vaidades e coisas mundanas, mas na negligência de não entender do que devem se desapegar, se perdem no egoísmo e frieza e se veem cada vez mais vazios(as). Troque homem por mulher neste texto, e o resultado pode ser o mesmo.
-
-- O preconceito não é apenas de rico para o pobre, ou do belo para o feio (gosto e perspectivas são diferentes de um indivíduo para o outro). O preconceito é com o diferente, a não aceitação e desconforto em estar próximo de alguém que por mais que não se incomode com sua presença nem nunca lhe faça mal, a simples presença lhe incomoda, talvez pela inveja, ou talvez porque a presença do outro traga lembranças da sua própria procrastinação em suas metas.
 
 https://iviagora.com.br/noticia/11404/10-sinais-de-que-voce-tem-uma-conexao-genuina-com-alguem
 
@@ -2615,8 +2610,6 @@ https://iviagora.com.br/noticia/11404/10-sinais-de-que-voce-tem-uma-conexao-genu
 - Mulheres fracas são preguiçosas, querem apenas ser servidas, e apenas entregam um corpo.
 
 - Se tornou comum procurar pessoas de valor, mas ao olhar para si mesmo você perceberá verdadeiramente os seus próprios defeitos, o que será mal visto ou não, ou irás mentir para si mesmo e para os outros se colocando em um pedestal. Mas quando a ficha cair e ver que o outro é pior que você, fugirás demonstrando que não tens nenhuma virtude.
-
-- Ter vários ciclos de relacionamentos vão lhe deixar lembranças e consequentemente traumas que você não vai assumir que foram traumas. Esses relacionamentos passados vão atrapalhar você em construir algo sólido com alguém que realmente vale a pena.
 
 - Ter contatinhos expõe talvez o seu medo de se entregar intensamente e ser magoado. Os contatinhos casuais seriam o seu consolo de quando a primeira opção desse errado. Cuidado, os contatinhos vão ser juntos aos seus traumas do passado um motivo para dar errado. Você já entra desconfiado por você mesmo não ser exemplo. E pior ainda, não se entrega por medo, e vive no morno ao invés de intenso. Isso é para o morno, ou o intenso que tem medo. Isso não é para o frio/seco. 
 
@@ -2652,20 +2645,11 @@ https://iviagora.com.br/noticia/11404/10-sinais-de-que-voce-tem-uma-conexao-genu
 
 - Não almeje conquistar pessoas com a frieza de persuadi-las pelas vulnerabilidades que estão expostas, mesmo que para você se trate apenas de negócios, e mesmo que para a outra pessoa também. Almeje conquistar pessoas com a esperança de suavemente abrir os olhos dela para mostra que o que tem nesse mundo é plano.
 
-- Para poder ajudar a consertar alguém quebrado, você tem de estar blindado, não pela frieza(criada pelo ciclo de Ódio e desprezo ao mundo), mas pelo amor e paciência. Se você for frio, você não se importará em abandonar a pessoa quando o Ódio bater a porta. Se você for superficial, ligado a coisas planas (vaidades, promiscuidades/luxúrias, ganâncias, invejas, gulas, orgulhos, preguiças, manipulações/mentiras) você está tão doente quanto a pessoa que você quer ajudar. Mas se você está no amor e paciência de Deus, não existe limite para como você pode ajudar. Para ajudar, direcione a pessoa a deixar a vida regada em tudo aquilo que é plano e afasta as pessoas do divino. Tenha coragem e não medo.
-
-- Para ajudar, tenha a certeza que estais blindado, não pela frieza(criada pelo ciclo de Ódio e desprezo ao mundo), mas pelo amor e paciência de Deus, e que o caminho não está nas coisas planas, mas no divino.
-- Os ciclos da maldade, da desistência, do abandono, do medo tem de ser quebrado. É preciso mais bondade, resistência e coragem, essas qualidades tem de ser forjadas com Deus.
-
-- Você não pode abandonar aquilo que já não está mais com você. Faça sua parte, não abandone, mas seja transparente em dizer que enquanto não existir entrega, não de corpo, mas de vontade, não tem porque insistir em algo. Deixe ir, mas fique com a consciência tranquila de que fez sua parte, e para isso, é ter na mente que aceitaria de volta caso você esteja livre, mas não de forma morna, não com mentiras, não com manipulações, não sem entrega, não sem você sentir a pessoa.
-
-- Pessoas perdidas que não se reconhecem mais, que se doaram em coisas, como estudos, relações, trabalhos, projetos, fases, momentos que não mais se veem, e acham que tudo é uma fase e estão em momento de evolução, vocês não estão evoluindo se não sabem para onde estão indo. Vocês estão a deriva em uma bandeja em um mundo cheio de tubarões, suas vulnerabilidades estão estampadas, o cheiro de medo se exala e a maldade tende a lhe encontrar, seja a maldade de pessoas ou da sua própria mente atormentada com o mundo, eu só espero que Deus lhe fisgue antes. Tenha fé e rogue por sabedoria, verás a calmaria chegar, e o medo ir embora.
-
 - Não adianta o morno dizer para o frio que ele é frio, estás apenas chovendo no molhado. O morno que finge calor, ou tem medo do intenso, só engana a si mesmo e a talvez o intenso. O frio só vai perder pro calor de verdade.
 
 - A vida é feita de escolhas, se escolher a Deus não é uma opção pois você nem o enxerga nessa escolha, ou acha que apenas acreditar é o suficiente, ou ver como algo vago pois já tem a Deus. Então faça qualquer escolha e viva intensamente a escolha feita, no final, de qualquer forma você não se sentirá satisfeito, pois você não sentiu Deus ao escolher. No final, eu espero que volte e pergunte a Deus como servi-lo com base nas habilidades que adquiriu durante suas escolhas de vida. Apenas fique atento as escolhas que lhe levam a uma vida regada em vaidades, promiscuidades/luxúrias, ganâncias, invejas, gulas, orgulhos, preguiças, manipulações/mentiras, tudo aquilo que é plano e afasta as pessoas do divino. Por escolha entenda, profissões/carreira, objetos(carros, casas), viagens, relacionamentos, trabalhos, estudos, projetos.
 
-- Não se entra em novos ciclos, para preencher o ciclos mal resolvidos do passado, não adianta negar o passado mal resolvido, tem de encara-lo, reconhecê-lo, e tirar a prova de que não tem ressentimento. Para provar que não tem ressentimento é algo que não é simples de saber.
+- Não se entra em novos ciclos, para preencher o ciclos mal resolvido do passado, não adianta negar o passado mal resolvido, tem de encara-lo, reconhecê-lo, e tirar a prova de que não tem ressentimento. Para provar que não tem ressentimento é algo que não é simples de saber.
 
 - Para o morno, o frio é desconfortável, para o frio o morno é desprezível. O morno em sua superficialidade retribui o desprezo. O frio só se sacia com o intenso, o intenso só se sacia com o que é de verdade.
 
@@ -2728,6 +2712,8 @@ https://amenteemaravilhosa.com.br/os-9-pilares-do-relacionamento/
 
 - Até o Diabo acredita que Deus existe, o problema é que ele não tem mais fé.
 
+- O valor de algo é medido pelo desejo do indivíduo/entidade. Mas nem todo indivíduo/entidade deseja as mesmas coisas.
+
 - Ir para a Igreja pecando é melhor do que não ir a Igreja. As coisas podem começa a dar errado quando começar a ir para a Igreja e continuar em pecado. Mas é porque Deus vai lhe purificar, talvez na dor. Sirva a Deus orando em silêncio, praticando o bem em meio ao mal, mas não sendo visto como homem de Deus, pois isto poderia escandalizar os pequenos.
 
 - Conhecer pessoas falando do seu próprio passado, suas conquistas, vai fazer com que essa pessoa tenha interesse no que você pode proporcionar a elas, seja um conforto através do dinheiro, do status, da influência, como escada/trampolim, pelo afeto, pelo prazeres momentâneos, pela companhia, pelas conversas. Quando genuíno, você pode ter tudo isso, mas se não tiver não vai importar, você ainda assim vai gostar da pessoa e querer só aquela pessoa. E para selar de verdade isso terá de ter como base Deus. Tem de se quebrar esses ciclos de promiscuidades e divórcios.
@@ -2762,7 +2748,9 @@ https://amenteemaravilhosa.com.br/os-9-pilares-do-relacionamento/
 
 - Às vezes é necessário renunciar ou dar um tempo ao seu atual caminho quando se dá conta do quanto estava sendo ingênuo, ou o quanto ainda precisava ampliar sua visão, para depois quando a verdade estiver mais ampla, poder retomar a caminhada.
 
-- A intrigante palavra desapego, como a mesma pode ser usado para o bem e para o mal. Um desapego das coisas mundanas, dos prazeres momentâneos, do dinheiro, dos prazeres da carne, dos desejos, das carências afetivas, da inveja, esse desapego não parece ser ruim. Mas desapego que gera abandono, que gera desistência, do cansaço, que fazem pessoas pedirem divórcio, de promessas serem quebradas, inclusive a Deus, de trilharem o caminho do egoísmo, de quem foge com medo pois procura a felicidade, não em Cristo, mas em algo do mundo que não sabe o que eh, o medo nunca é de alguém que está em Deus.
+- Os melhores vinhos são feitos em terrenos áridos, pois é da privação de facilidades que se vem a qualidade.
+
+- O preconceito não é apenas de rico para o pobre, ou do belo para o feio (gosto e perspectivas são diferentes de um indivíduo para o outro). O preconceito é com o diferente, a não aceitação e desconforto em estar próximo de alguém que por mais que não se incomode com sua presença nem nunca lhe faça mal, a simples presença lhe incomoda, talvez pela inveja, ou talvez porque a presença do outro traga lembranças da sua própria procrastinação em suas metas.
 
 - Um sábio que não tem a Deus, mesmo aquele que acredita mas ainda não está com o coração cheio de graça, sabe que a felicidade só leva ao sofrimento, pois as felicidades que conhece são as dos prazeres e desejos da carne, do próprio egoísmo, e quando elas se forem só restará sofrimento mediante as lembranças da felicidade. Um sábio que não tem a Deus tomará a decisão mais óbvia, guiada pelo medo do sofrimento procurará destruir suas emoções e sentimentos para não mais sofrer, pois não existirá sofrimento se não existir mais felicidade, mas o coração frio é uma ilusão de força e blindagem daquele que lhe afasta de Deus.
 
@@ -3034,6 +3022,16 @@ Lucas 22
 
 - O pão e vinho deixa de ser apenas um pão e vinho e passa a ser corpo e sangue de Cristo (transubstanciação) se você tiver fé, nem que seja mínima e quase imperceptível, assim como um grão de mostarda. Mas se você faz desdém em seu orgulho do corpo e do vinho, talvez de fato não seja feito o que se chama transubstanciação, mas ainda também existirá a fé do sacerdote que administra a Eucaristia, desde que o mesmo sacerdote não guarde amarguras, soberbas, ou desdenhe da Santa Igreja Católica, ou das Igrejas Apostólicas, estando assim o sacerdote em comunhão com a sucessão Apostólica.
 
+<!-- TOC --><a name="santa-missa"></a>
+#### Santa Missa
+
+- A explicação da Santa Missa é um mistério, talvez algo individual para cada um, mas para mim é caminhada com Cristo ressuscitando a sua história vida ao se fazer Carne, tudo isso em poucas horas. E aqui cabe a mim a dizer os detalhes do que vejo:
+
+  - Mistérios Gozosos: Momento de entrada do Padre junto aos demais membros do Altar, sendo recebidos com os cânticos de entrada, muitas vezes de celebração, aqui vejo um sentimento/emoção de esperança pela vinda de Cristo presente em sua sucessão apostólica através do Padre.
+  - Mistérios Luminosos: Momento de Leitura da palavra e pregação do Evangelho, todos fazem silêncio para ouvir a palavra, e principalmente o momento de homilia em que o Padre fala emprestando a sua boca para ao Espirito Santo, para que o Espirito Santo fale através do apóstolo, aqui vemos o candelabro brilhando e trazendo luz em meio as trevas que pode existir dentro do coração e mente de um individuo (ovelha perdida) que assiste a Santa missa. Logo após um ofertório dos presentes procurando representar sua gratidão pelas palavras ditas.
+  - Mistérios Dolorosos: momento antes de receber a Eucaristia em que procuramos nos ajoelhar perante Cristo, mortificando nossos pecados na Cruz ao nos arrependermos verdadeiramente, pecados que já devem ter sido confessados antes da missa.
+  - Mistérios Gloriosos: Momento de recebimento da Eucaristia, momento em que nos vivificamos(ressuscitamos) em comunhão com Cristo através da Eucaristia.
+
 <!-- TOC --><a name="santos-e-interseções"></a>
 #### Santos e interseções
 
@@ -3062,9 +3060,11 @@ Resposta ChatGPT:
 
 - Não podemos afirmar de verdade ou não, a vontade de Deus em fazer de seus servos mais fieis peças chaves ou não em obras de intercessão, pois só o senhor Deus é a verdade ao que se mostrou através de Jesus Cristo. Mas em relatos de fé descritos por terceiros, acredito que Deus como todo poderoso pode tudo, inclusive dar poder para que fiéis em vida possam ter honrarias maiores no céu. Mas acredito também, que vai depender da vontade do fiel após a sua morte continuar servindo a Deus, ou decidir descansar.
 
-- Mas Deus não precisa de ajuda. Ele sozinho já faz tudo ? Não ouvistes Jesus Cristo, Deus nosso senhor ? Que Em nome do pai(Cabeça), filho(corpo), Espírito Santo(coração), poderíamos interpretar todos como membros do corpo de Deus ? Não seria por ventura um anjo membro do corpo de Deus, sendo uma célula membro ordeira que obedece a cabeça ? E como membro de um corpo de Deus , não seria também Deus , pois está serviço dele ?
+- Mas Deus não precisa de ajuda, ele sozinho já faz tudo ? Não ouvistes Jesus Cristo, Deus nosso senhor ? Que Em nome do pai(Cabeça), filho(corpo), Espírito Santo(coração), poderíamos interpretar todos como membros do corpo de Deus ? Não seria por ventura um anjo membro do corpo de Deus, sendo uma célula membro ordeira que obedece a cabeça ? E como membro de um corpo de Deus , não seria também Deus , pois está a serviço dele ?
 
 - Tratar um anjo como corpo de Deus talvez seja errôneo, mas sendo ou não, as ações de anjos existem, tratar ele como parte de Deus só mostra ele como onipresente, não tratá-lo como membro do corpo de Deus seria tratá-lo como um servo externo a serviço do senhor.
+
+ - Santos são portanto ramos da árvore da vida que sim encontra em Cristo, demonstrando diferentes caminhos de Santidade para se chegar em Cristo.
 
 <!-- TOC --><a name="santidade"></a>
 #### Santidade
@@ -3105,7 +3105,7 @@ João 17
 
 - As ações/obras de vida de um santo são consequências da sua santidade por estar em estado de graça, e não a santidade ser consequência das obras dos santos. Santidade não se vive, se sente, não é sobre a moralidade de faça isso deixe de fazer aquilo para ser santo, quando se esta em estado de graça, você nem cogita mais o que se chama pecado. Pois santidade é estar vivo em espírito, e isso é sentido ao Amar a Deus e ao próximo verdadeiramente.
 
-- Estar em estado de Santidade não significa conseguir manter o mesmo durante toda a trajetória de vida, pois muitas vezes levamos tropeços por pequenas escolhas equivocadas, pois o indivíduo sempre terá a escolha, no mais, que essa segunda escolha não seja de uma segunda morte definitiva.
+- Estar em estado de Santidade não significa conseguir manter o mesmo durante toda a trajetória de vida, pois muitas vezes levamos tropeços por pequenas escolhas equivocadas, pois o indivíduo sempre terá a escolha, no mais, que essa segunda escolha não seja de uma segunda morte definitiva. Os tropeços veniais mesmo em estado de graça são necessários pois são as pequenas imperfeições que lhe torna perfeito, pois assim brotará a humildade, inversamente o perfeito sem imperfeição se torna impossível de ser perfeito pois o orgulho, soberba e arrogância lhe domina negligenciando assim a humildade.
 
 - Não podemos atingir o estado de graça/santidade sem Deus. Deus sem você é Deus, mas e você sem ele ?
 
@@ -3115,8 +3115,30 @@ João 17
 
 - Para os irmãos que não seguem as doutrinas católica, a única que coisa peço (não é uma exigência, pois não mando em vós), é que não precisa se submeter a ordem papal, mas que preguem com o coração, não apenas lendo e interpretando, e compreendendo a palavra, nem apenas entendendo o contexto, mas também sentindo de coração, não é com medo de pecar que se deve pregar, ou com medo de perder fiéis, ou com medo de serem taxados de uma igreja católica sem papa. Que mal teria em pregar as mesmas coisas de uma Igreja, que sim já teve (ou tem) membros que erraram no passado, mas que mantém grandes valores de amor de Cristo ? Vigiem vossos corações pois daí virá as vontades de Deus, através de alegria, esperança, paciência gerando o Amor da graça de Deus, pois o que é do medo, tristeza, raiva, ódio provém do maligno.
 
-<!-- TOC --><a name="morte-inferno-purgatório"></a>
-#### Morte, Inferno, Purgatório
+<!-- TOC --><a name="morte-céu-inferno-purgatório"></a>
+#### Morte, Céu, Inferno, Purgatório
+
+Mateus 25
+
+1. “Então, o Reino dos Céus será semelhante a dez virgens, que saíram com suas lâmpadas ao encontro do esposo.*
+2. Cinco dentre elas eram tolas e cinco, prudentes.
+3. Tomando suas lâmpadas, as tolas não levaram óleo consigo.
+4. As prudentes, todavia, levaram de reserva vasos de óleo junto com as lâmpadas.
+5. Tardando o esposo, cochilaram todas e adormeceram.
+6. No meio da noite, porém, ouviu-se um clamor: Eis o esposo, ide-lhe ao encontro.
+7. E as virgens levantaram-se todas e prepararam suas lâmpadas.
+8. As tolas disseram às prudentes: Dai-nos de vosso óleo, porque nossas lâmpadas se estão apagando.
+9. As prudentes responderam: Não temos o suficiente para nós e para vós; é preferível irdes aos vendedores, a fim de o comprar para vós.
+10. Ora, enquanto foram comprar, veio o esposo. As que estavam preparadas entraram com ele para a sala das bodas e foi fechada a porta.
+11. Mais tarde, chegaram também as outras e diziam: Senhor, senhor, abre-nos!
+12. Mas ele respondeu: Em verdade vos digo: não vos conheço!
+13. Vigiai, pois, porque não sabeis nem o dia nem a hora.”
+
+Lucas 17
+
+21. Nem se dirá: Ei-lo aqui; ou: Ei-lo ali. Pois o Reino de Deus já está no meio de vós”.*
+
+- As lamparinas são os vossos corações, que devem estar quente e em comunhão com Cristo (humildade, alegria, esperança, paz, penitência/dor, bases do Amor de Deus) e com uma consciência limpa, pois se estiverem frios e cheios de impureza (ódio, medo, tristeza, raiva, mágoas, ganâncias/avareza, orgulho/soberba, invejas, luxúria/vaidades, apegos, preguiças, gulas) que valor tem as suas lamparinas já que estão apagadas ?
 
 - Quando a morte chega, as coisas da consciência e coração permanecem na alma, não se iluda achando que na morte haverá uma limpeza ou sono profundo de paz. É uma ilusão achar que na morte você vai estar em estado de espera aguardando o tempo de julgamento para o dia do senhor, o dia do senhor é o dia da sua morte, para Jesus(Deus) não existe passado, presente e futuro, ele é o eterno. E a morte para quem tem olhos além da carne, é mais do que a morte física, pois existe mais de um tipo de morte.
 
@@ -3128,9 +3150,9 @@ João 17
 
 - O purgatório, é um estado aonde a alma poderá sofrer tanto quanto no inferno, dependendo dos apegos materialistas que teve em vida, mas existem luzes a servirem de portais para aquela alma se libertar, mas irão precisar superar seus medos profundos não superados em vida, os apegos terrenos, os pecados capitais que ainda perduraria. Uma alma no purgatório não morre em vida física com pecado mortal, mas também não existe garantias de saída do labirinto que é o purgatório, pois ela tem de escolher verdadeiramente amar a Deus e consequentemente ao próximo. 
 
-- O inferno, é para quem conscientemente escolheu o mal, é para quem conscientemente tendo noção das consequências do mal que fazia ao próximo continuou, veja que é uma questão de consciência, se você rouba e não tem noção do mal que fez ao próximo, seria no máximo um purgatório. Mas para quem tem o prazer, o desejo, que faz por maldade, e morre fisicamente neste estado, é alguém que já estava totalmente morto por dentro, pois estavam com a alma ainda negra e manchada de pecados mortais (conscientemente fazendo o que não devia), que por escolha ou talvez falta de oportunidade não se mortificou nos pecados para Ressuscitar em Cristo ainda em vida física (veja como a morte aqui tem um sentido diferente). Para ainda em vida física purificar a alma que está em pecados mortais, é preciso um confessionário e um arrependimento verdadeiro.
+- O inferno é um estado de completa ausência de Deus(Luz), é para quem conscientemente escolheu o mal, é para quem conscientemente tendo noção das consequências do mal que fazia ao próximo continuou sem arrependimento verdadeiro, veja que é uma questão de consciência, se você rouba e não tem noção do mal que fez ao próximo, seria no máximo um purgatório. Mas para quem tem o prazer, o desejo, que faz por maldade conscientemente, e morre fisicamente neste estado, é alguém que já estava totalmente morto por dentro, pois estava com a alma ainda negra e manchada de pecados mortais (conscientemente fazendo o que não devia), que por escolha ou talvez falta de oportunidade (ausência de um guia de luz) não se mortificou nos pecados para Ressuscitar em Cristo ainda em vida física (veja como a morte aqui tem um sentido diferente). Para ainda em vida física purificar a alma que está em pecados mortais, é preciso um confessionário e um arrependimento verdadeiro.
 
- - Uma alma que vai para o inferno é uma alma sem luz, sem esperança, em que passará a eternidade com seus medos mais sombrios e profundos lhe atormentando, e se você não se lembrar, fique tranquilo que existirá outros espíritos das trevas (demônios) para lhe lembrar e sugar(devorar) o restante de energia(vida) espiritual que restar na sua alma, eles sugam através do medo, tristezas e raivas, ansiedades (medo em um nível maior), que os mesmos irão sentir ou até provocar em sua alma, por isso a necessidade de aceitar a morte em paz, para que ao morrer tenha colhido e guardado na mente e principalmente coração as coisas de Deus (alegria, esperança, paz, as bases do Amor de Deus), e que ao serem provados pelo fogo, não serão devorados. 
+ - Uma alma que vai para o inferno é uma alma sem luz, sem esperança, em que passará a eternidade com seus medos mais sombrios e profundos lhe atormentando, e se você não se lembrar, fique tranquilo que existirá outros espíritos das trevas (demônios) para lhe lembrar e sugar(devorar) o restante de energia(vida) espiritual que restar na sua alma, eles sugam através do medo, tristezas e raivas, ansiedades (medo em um nível maior), que os mesmos irão sentir ou até provocar em sua alma, por isso a necessidade de aceitar a morte em paz, para que ao morrer tenha colhido e guardado na mente e principalmente coração as coisas de Deus (humildade, alegria, esperança, paz, penitência/dor, as bases do Amor de Deus), e que ao serem provados pelo fogo, não serão devorados.
 
 - O maior problema em morrer com o peso na consciência e não conseguir se elevar, é que vai ter outros espíritos para lhe fazer companhia, alguns deles vão ser como você almas penadas, outros são Espíritos malignos antigos, que vão lhe devorar, lhe sugar o resto de energia Espiritual que você tem, e isso independe do seu estado de inferno ou purgatório, eles vão lhe sugar lhe atormentando com palavras, zombarias, provocação, lhe conhecem tão bem, até mais do que você mesmo (isso para quem nunca meditou), você terá medo, e ele sobrevive sugando sua energia de medo, você terá tristeza e ele sobrevive sugando essa tristeza, você terá raiva e ele vai adorar, você vai xingá-lo e ele irá dizer: "sou mesmo", e quanto mais raiva você tiver, mais vai ser sugado, você não vai conseguir calar a boca dele, você não pode conseguir toca-lo pois espírito são imateriais, e para quem acha que palavras machucam, não suportar provocação e já se tomam de raiva e angústias, vocês são um prato gordo e cheio para serem devorados.
 
@@ -3140,9 +3162,14 @@ João 17
 
 - O purgatório não é fruto da misericórdia divina, pois não existe nada de bom no purgatório, pois Deus não está lá, o purgatório é fruto do pecado, pois é a escolha da auto condenação da alma em um estado de sujeira morno, nem podre como o inferno, nem limpo como nos céus, não existe garantia de saída do purgatório, pois depende sempre da escolha do indivíduo. A misericórdia Divina é Deus estar sempre de braços abertos para o filho que verdadeiramente ama a Deus incondicionalmente, o filho que sabe se mortificar em seu pecado, se arrependendo e dizendo não a si mesmo (ego/orgulho/desejos) por Amor maior ao Pai. Isto é tão verdade, que no dia que o homem não mais escolher seu ego/pecado não existirá mais purgatório nem inferno, mas ainda continuará existindo um Deus zeloso, misericordioso e cheio de Amor. Pois para um animal que não seja o homem, Deus também sempre continuou sendo zeloso e misericordioso, pois um animal não escolhe o pecado pois não teve lei, consciência, egoísmo, discernimento para quebra de laço com o senhor dos Senhores.
 
-- Podemos resumir entre e a vida(céu) e a morte(pecado), mas a morte teria a total(inferno) e o quase totalmente morto(purgatório).
+- Podemos resumir entre a vida(céu) e a morte(pecado), mas a morte seria a total(inferno) e o quase totalmente morto(purgatório).
 
 https://www.vaticannews.va/pt/igreja/news/2018-04/papa-francisco-teologia-inferno-entrevista-padre-athos-turchi.html
+
+<!-- TOC --><a name="seria-possível-uma-alma-sair-do-inferno-para-o-purgatório-"></a>
+#### Seria possível uma alma sair do inferno para o purgatório ?
+
+- Com exceção do todo poderoso Senhor Jesus Cristo (Deus), consideraria impossível, pois o inferno é uma escolha/opção do livre arbitrio e por isso o inferno sempre vai existir, pois o inferno é para quem diz não a Deus(Luz) conscientemente em vida. Os motivos para alguém escolher o inferno e permanecer lá podem ser vários, para os espíritos de sabedoria e conhecimento das trevas como demônios e Satanás, o orgulho (falta de humildade) é um dos motivos pois eles não gostam de serem humilhados (algo necessário para a purificação), mas tem outros motivos como o medo, a desesperança, a preguiça/comodismo pois satanás e os demônios se sentem confortáveis aonde estão (praticando o pecado), já para as almas atormentadas é a prisão mental(consciência) e do coração no momento da morte que os próprios demônios usam para atormentar e manipular as almas com uma consciência cheia de culpa, de desesperança, sem saber para onde ir, e com verdades tão negras que de fato a vergonha, a culpa, orgulho, a falta de perseverança em penitências fazem com que seja impossível sair de lá, pois se já não existe garantias de sair do purgatório mesmo com uma esperança pequena, imagine para quem morre em uma estado de completa desesperança, culpa, ódio, orgulho, entre outras coisas negras ?
 
 <!-- TOC --><a name="mas-deus-é-misericordioso-e-todo-poderoso-ele-pode-nos-salvar"></a>
 #### Mas Deus é misericordioso e todo poderoso, ele pode nos salvar?
@@ -3228,14 +3255,15 @@ https://www.vatican.va/archive/compendium_ccc/documents/archive_2005_compendium-
 
     - 1- Homicídio devidamente intencional, não o intencional baseado nas leis dos homens, mas o intencional com ódio e orgulho no coração de quem o prática.
     - 2- Adultério: nada mais é que ser escravo dos desejos carnais, e com grandes chances de que o homem ou mulher traído tenham um descontrole e tente contra a vida dos envolvidos. E muitos que praticam sabem do risco.
-    - 3- Fornicação: também um escravo dos desejos carnais, e ainda mais quando realizado de forma a iludir o parceiro, passando uma ilusão de compromisso de casamento ou relacionamento que não iria existir.
+    - 3- Fornicação: também um escravo dos desejos carnais, contribuindo para que o próximo se torne escravo desses desejos e ainda mais quando realizado de forma a iludir o parceiro, passando uma ilusão de compromisso de casamento ou relacionamento que não iria existir.
     - 4- Roubo grave: escravo da ganância por matéria, se cegando quanto a dor alheia. Roubar alguém em algo que para a vítima lhe cause tormento, aqui não importa a quantidade, mas sim o valor para a vítima, seja valor de riqueza ou até sentimental(não entra aqui na discussão o pecado do apego da vítima a matéria).
     - 5- Mentira grave: Uma mentira que causa um caos e termina em morte, gerando tormentos de remorso, piora mais ainda de juntar ao orgulho.
     - 6- Pecados contra a fé: destilação de ódio ao invés de Amor, compaixão e Amor de Deus.
     - 7- Embriaguez que leva a sua morte ou de outra pessoa, morrer ou matar em estado de embriaguez é angustiante, pois a mente e coração estarão em um estado de tormento.
     - 8- Pecado contra os 10 mandamentos, muitos já citados, mas principalmente desrespeitar o pai e mãe quando o mesmo esta honrando à Deus. Não diria um desrespeito a um pai ou mãe que pede a um filho para fazer coisas erradas, ou pai ou mãe que não educam o filho pelo exemplo.
+    - 9 Não comungar na Eucaristia, pois o homem não tem mais a árvore da vida (coração), mas através da Eucaristia o mesmo é revivido em Cristo. Eucaristia é mandamento de Cristo perpétuo, já predito em Êxodo 12.
 
-IMPORTANTE: Não cabe a ninguém condenar alguém em tais pecados, pois é algo que remete as coisas do coração e que muitos não compreendem, cabe apenas o aviso de que ato por si e visto superficialmente pode significar algo mortal.
+IMPORTANTE: Não cabe a ninguém condenar alguém em tais pecados, pois é algo que remete as coisas do coração e que muitos não compreendem, cabe apenas o aviso de que  o ato por si e visto superficialmente pode significar algo mortal.
 
 - Almas em tais pecados mortais não dormem bem, ficam angustiadas, ansiosas, anseiam por algo que não sabem, buscam saídas de luz mas não encontram, por isso a importância da humildade e confessionário, uma purificação e absolvição dos pecados para poder estar diante de Deus presente na Eucaristia.
 
@@ -3257,6 +3285,8 @@ IMPORTANTE: Não cabe a ninguém condenar alguém em tais pecados, pois é algo 
 - Demônios são espíritos/almas que após escolher a luz, após Deus ter mostrado os céus, decidem ainda preferir o mundo ou/e negar Deus, para ainda viver em prazeres longe de Deus atormentando a todos. São os espíritos com grande sabedoria mas que decidiram pela segunda morte.
 
 - Demônios não sugam sua luz, eles sugam/devoram suas energias escuras, a luz que se apaga em você é porque de fato você escolheu a escuridão ao invés da luz quando o demônio lhe induziu a escolher o medo ao invés da esperança, escolher a tristeza ao invés da alegria, escolher a raiva ao invés da paz, escolher o egoísmo ao invés da caridade/servidão, escolher o orgulho ao invés da Humildade, escolher o ódio/desprezo ao invés do Amor a Deus e ao próximo.
+
+- Demônios racionam seus alimentos de tal forma que algumas almas condenadas eles guardam para devorá-las depois. Ardilosamente se os mesmos conseguirem esconder das suas presas o futuro que lhes aguarda, fingiram ser seres de luz que protegem/guardam almas. Vão alimentado a energia escura em uma alma como um homem alimenta uma galinha até ficar gorda e pronta para o abate.
 
 <!-- TOC --><a name="satanás"></a>
 #### Satanás
@@ -3294,7 +3324,7 @@ Filipenses 2
 10. para que ao nome de Jesus se dobre todo joelho, no céu, na terra e debaixo da terra,
 11. e toda língua confesse que Jesus Cristo é o Senhor, para a glória de Deus Pai.
 
-- Contra um mentiroso fingido que conheceu a Deus e mesmo assim o negou em seu discurso e preferiu o inferno, infinitas são as mentiras e dissimulações, só restando 
+- Contra um mentiroso fingido que conheceu a Deus e mesmo assim o negou em seu discurso e preferiu o inferno, infinitas são as mentiras e dissimulações, só restando rezar o Santo Rosário.
 
 <!-- TOC --><a name="vampirosdemônios-debaixo-da-terra"></a>
 #### Vampiros/Demônios debaixo da terra
@@ -3378,7 +3408,7 @@ Mateus 17
 12. Mas digo-vos que Elias já veio, e não o conheceram, mas fizeram-lhe tudo o que quiseram. Assim farão eles também padecer o Filho do homem.
 13. Então entenderam os discípulos que lhes falara de João o Batista.
 
-- Ao que parece, a reencarnação é algo que de fato é possível a exemplo de Elias, mas o que não seria possível para o todo poderoso que a tudo governa? e que Existe antes do próprio Universo, estando além do Tempo, Espaço e Matéria. O que não me cabe é olhar pelos olhos, olhar pelo carnal, ou tentar adivinhar reencarnações passadas me apegando a crenças que me fazem colocar algo na posição de Deus, paixões, apegos e amores que geram desobediência a Deus, como por exemplo se apegar a um bode/boi/vaca/cachorro dizendo que é um parente antepassado gerando um apego mais do que o normal, obviamente podem se tratar bem animais, e se for de estimação como um membro de família na devida posição de animal de estimação, mas esse apego, esse medo de perder um animal, como se amasse mais o animal do que a Deus tem de ser vigiado pela próprias pessoas que praticam tais atos.
+- Ao que parece, algo semelhante a reencarnação é algo que de fato é possível a exemplo de Elias, mas o que não seria possível para o todo poderoso que a tudo governa? e que Existe antes do próprio Universo, estando além do Tempo, Espaço e Matéria. O que não me cabe é olhar pelos olhos, olhar pelo carnal, ou tentar adivinhar reencarnações passadas me apegando a crenças que me fazem colocar algo na posição de Deus, paixões, apegos e amores que geram desobediência a Deus, como por exemplo se apegar a um bode/boi/vaca/cachorro dizendo que é um parente antepassado gerando um apego mais do que o normal, obviamente podem se tratar bem animais, e se for de estimação como um membro de família na devida posição de animal de estimação, mas esse apego, esse medo de perder um animal, como se amasse mais o animal do que a Deus tem de ser vigiado pela próprias pessoas que praticam tais atos.
 
 - A crença na reencarnação é perigosa pois quando ela não lhe leva a pecar pelo APEGO EXCESSIVO a algo que já se foi dessa vida e você tenta adivinhar uma reencarnação, você também pode pecar pelo desprezo ao próximo dizendo que Fulano(qualquer pessoa) tem uma vida miserável e cheia de dificuldades por causa de pecados de vidas passadas.
 
@@ -3460,7 +3490,15 @@ Se você desejar expandir mais sobre algum desses pontos ou discutir outro aspec
 
 - A reencarnação é uma manipulação usada pelos demônios para continuar sugando as almas seja ela em vida física ou não. Os demônios precisam de almas para sugar neste mundo ao qual eles habitam. O nascimento de uma criança é algo que é revitalizado pela natureza de Deus ao conceder a LUZ no nascimento.
 
-- A ressurreição é quem para quem se mortificou nos pecados, foi aos céus pela graça de Deus ao decidir aceitar o Amor de Deus, e pode de uma forma ou de outra retornar a vida física, conforme a vontade de Deus pai todo poderoso.
+- A ressurreição é para quem se mortificou nos pecados, foi aos céus pela graça de Deus ao decidir aceitar o Amor de Deus, e pode de uma forma ou de outra retornar a vida física, conforme a vontade de Deus pai todo poderoso.
+
+João 3
+
+4.Nicodemos perguntou-lhe: “Como pode um homem renascer, sendo velho? Porventura pode tornar a entrar no seio de sua mãe e nascer pela segunda vez?”.
+5.Respondeu Jesus: “Em verdade, em verdade te digo: quem não renascer da água e do Espírito não poderá entrar no Reino de Deus.*
+6.O que nasceu da carne é carne, e o que nasceu do Espírito é espírito.
+7.Não te maravilhes de que eu te tenha dito: Necessário vos é nascer de novo.
+8.O vento sopra onde quer; ouves-lhe o ruído, mas não sabes de onde vem, nem para onde vai. Assim acontece com aquele que nasceu do Espírito”.*
 
 <!-- TOC --><a name="ejaculação-sexo-vida"></a>
 #### Ejaculação, sexo, vida 
@@ -3500,7 +3538,7 @@ Esses versículos, entre outros, afirmam que a segunda vinda de Cristo será um 
 
 - Os mortos em Cristo, não seria talvez apenas a literalidade da morte. Mas a morte dos pecados, ao renunciar ainda em vida física os pecados, e passar a viver os dias seguintes sem voltar a pecar, esses na hora da morte morrem em estado de graça e são os primeiros a encontrar a Deus. E os vivos, seriam aqueles que não teriam renunciado ao pecado, e que não morreram em pecado mortal, e irão para o "purgatório" para ter os pecados expurgados. O purgatório será vagar pela terra como Espírito até se encontrar em si mesmo para saber encontrar a Deus(Jesus/Espírito Santo de Deus).
 
-- A volta do filho do homem para julgar a todos será para colocar ordem nos espíritos imundos que amaram mais ao mundo do que a Deus, espíritos infiéis(meretriz/raparigas/prostitutas/prostitutos/cachorros/cachorras) a Deus pois não mais servem a Deus e sim apenas a si mesmos, e andam vagando como espíritos podres e mortos pela terra atormentando outras almas, sejam essas almas vivas ou mortas fisicamente. 
+- A volta do filho do homem para julgar a todos será para colocar ordem nos espíritos imundos que amaram mais ao mundo do que a Deus, espíritos infiéis(meretriz/raparigas/prostitutas/prostitutos/cachorros/cachorras) a Deus pois não mais servem a Deus e sim apenas a si mesmos, e andam vagando como espíritos podres e mortos pela terra atormentando outras almas, sejam essas almas vivas ou mortas fisicamente.
 
 - Jesus/Deus olha para todos estando o mesmo além do tempo, espaço, e matéria.
 
@@ -3536,7 +3574,7 @@ ROMANOS 9
 
 - Se ainda por ventura bebem, festejam ano a pós ano, pode ter certeza que é devido a intercessão dela. A arca está se fechando, o dízimo tem de ser integral, e não é sobre dinheiro/matéria.
 
-<!-- TOC --><a name="incompreensão-do-divino-1"></a>
+<!-- TOC --><a name="incompreensão-do-divino"></a>
 #### Incompreensão do divino
 
 Jó 32
@@ -4335,17 +4373,31 @@ As duas testemunhas em Apocalipse 11 também têm o poder de realizar sinais e m
 Essa conexão reforça a ideia de que Deus continua a enviar mensageiros para chamar as pessoas ao arrependimento e à fé, especialmente em tempos de crise espiritual. Se você quiser discutir mais sobre essa interpretação ou outros aspectos, sinta-se à vontade!
 "
 
-- Em uma perspectiva recente as testemunhas talvez tenham sido Espíritos que habitaram na Europa na época da Apostasia (ex.: venda de indulgências) da Igreja Católica, no Santo Thomas More, homem que defendeu com fervor a Igreja Católica, mas morreu por não ceder ao divórcio solicitado pelo Rei Henrique VIII, que tornava o casamento adúltero com uma Prostituta/Rapariga. Pode ser também que ainda venha outras testemunhas antes de algo maior.
+- As duas testemunhas seriam dois grandes pregadores do evangelho, seja em carne ou em Espírito. Talvez no passado tenha sido os Apóstolos Paulo e Pedro, agora nos dias atuais nos resta observar.
 
 Apocalipse 12
 
-- A mulher que deu a Luz é maria, o filho nascido é Jesus. O dragão é o Diabo. De uma perspectivas de povos e nações mais recentes, Jesus Cristo/Deus entregou sua mãe Maria ao Brasil que veio de Portugal, fugindo de Napoleão (o Diabo), que dominou as grandes nações da Europa na época, o Diabo que ainda domina nos dias atuais as grandes Nações do Mundo, e ainda quer dominar o Brasil e se vingar da mulher, o povo Brasileiro Católico são os filhos de Maria.
+1. Apareceu em seguida um grande sinal no céu: uma Mulher revestida do sol, a lua debaixo dos seus pés e na cabeça uma coroa de doze estrelas.*
+2. Estava grávida e gritava de dores, sentindo as angústias de dar à luz.
+3. Depois apareceu outro sinal no céu: um grande Dragão vermelho, com sete cabeças e dez chifres, e nas cabeças sete coroas.*
+4. Varria com sua cauda uma terça parte das estrelas do céu, e as atirou à terra. Esse Dragão deteve-se diante da Mulher que estava para dar à luz, a fim de que, quando ela desse à luz, lhe devorasse o filho.
+5. Ela deu à luz um Filho, um menino, aquele que deve reger todas as nações pagãs com cetro de ferro. Mas seu Filho foi arrebatado para junto de Deus e do seu trono.
+
+...
+
+10. Eu ouvi no céu uma voz forte que dizia: “Agora chegou a salvação, o poder e a realeza de nosso Deus, assim como a autoridade de seu Cristo, porque foi precipitado o acusador de nossos irmãos, que os acusava, dia e noite, diante do nosso Deus.
+11. Mas estes venceram-no por causa do sangue do Cordeiro e de seu eloquente testemunho. Desprezaram a vida até aceitar a morte.
+12. Por isso alegrai-vos, ó céus, e todos que aí habitais. Mas, ó terra e mar, cuidado! Porque o Demônio desceu para vós, cheio de grande ira, sabendo que pouco tempo lhe resta”.
+
+- A mulher que deu a Luz é maria, o filho nascido é Jesus. O dragão é o Diabo. De uma perspectivas de povos e nações mais recentes, Jesus Cristo/Deus entregou sua mãe Maria ao Brasil que veio de Portugal, fugindo de Napoleão (o Diabo), que dominou as grandes nações da Europa na época, o Diabo que ainda domina nos dias atuais as grandes Nações do Mundo, e ainda quer dominar o Brasil e se vingar da mulher, o povo Brasileiro Católico são os filhos de Maria, filhos da Igreja Católica.
+
+- Muita atenção em: "o Diabo é o acusador de nossos irmãos, que lhes acusava diante de nosso Deus".
 
 Apocalipse 13
 
 18. Eis aqui a sabedoria! Quem tiver inteligência, calcule o número da Fera, porque é número de um homem, e esse número é seiscentos e sessenta e seis.*
 
-- A besta na atualidade dessa escrita se chama capitalismo, materializado através do Reino Unido/EUA, a besta que já foi Roma, que já foi Egito, que blasfemou contra a Igreja Católica e defendeu a falsa liberdade.
+- A besta se chama egoísmo/materialismo, reforçado através do Reino Unido/EUA, a besta que já teve como cede Roma, que já teve como cede o Egito, que blasfemou contra a Igreja Católica e defendeu a falsa liberdade.
 - Sobre a outra fera que tinha 2 chifres como um cordeiro e falava como um dragão, na atualidade identifico os 2 chifres como capitalismo e socialismo/comunismo (materializado nos EUA com Republicanos X Democratas - Direta x Esquerda)  que fez todos adorarem a besta materializada com a Estátua da Liberdade. Nenhum país conseguiu comprar ou vender sem usar o dólar depois do golpe aplicado pelos EUA. Os pais fundadores da América glorificam ao homem e a sua invenção de liberdade, derramando sangue, espalhando ganâncias e misérias. Totalmente diferente do Brasil que foi fundado por uma Santa Missa com a missão de espalhar o nome de Jesus.
 
 - O 666 é para aquele que parece ser a trindade mas não eh, que parece ser enviado de Deus mas não eh, pois a cabeça ao invés de estar para cima como no 999, está para baixo. Aos olhos dos homens, aos olhos da carne, vai parecer o que não eh, mas aos olhos do Espírito/Coração será tão claro como a luz do sol.
@@ -4373,7 +4425,7 @@ Apocalipse 17
 
 - Babilônia/Prostituta, talvez tenha si materializado na primeira era como sendo o Egito, na segunda Era o Império Romano, e agora na terceira Era o Império dos EUA/Reino Unido. Mas nesta terceira era o senhor Jesus Cristo vive eternamente.
 
-9. Aqui se requer uma inteligência penetrante. As sete cabeças são sete montanhas sobre as quais se assenta a mu­lher.*
+9. Aqui se requer uma inteligência penetrante. As sete cabeças são sete montanhas sobre as quais se assenta a mulher.*
 10. São também sete reis: cinco já caíram, um subsiste, o outro ainda não veio; e, quando vier, deve permanecer pouco tempo.
 11. Quanto à Fera que era e já não é, ela mesma é um oitavo (rei). Todavia, é um dos sete e caminha para a perdição.*
 
@@ -4691,7 +4743,7 @@ https://padrepauloricardo.org/blog/o-minimo-que-voce-precisa-saber-sobre-as-indu
 <!-- TOC --><a name="heresia"></a>
 #### Heresia
 
-- Julgar alguém como herege não é apenas um ato de julgar o ato, mas também a intenção no coração indivíduo, pois se fosse apenas o ato pelo por si só de forma literal, São Francisco de Assis ao tentar criar o movimento dos frades menores poderia na cegueira se equiparar a um herege como os cátaros, e até o próprio Moisés ao criar a cruz com uma serpente na travessia do deserto seria um herege.
+- Julgar alguém como herege não é apenas um ato de julgar o ato, mas também a intenção no coração do indivíduo, pois se fosse apenas o ato por si só de forma literal, São Francisco de Assis ao tentar criar o movimento dos frades menores poderia na cegueira se equiparar a um herege como os cátaros, e até o próprio Moisés ao criar a cruz com uma serpente na travessia do deserto seria um herege.
 
 <!-- TOC --><a name="alerta-ou-crítica-ao-protestantismo"></a>
 #### Alerta ou crítica ao protestantismo
@@ -4702,6 +4754,8 @@ https://padrepauloricardo.org/blog/o-minimo-que-voce-precisa-saber-sobre-as-indu
 Lutero -> Reforma protestante -> Inglaterra toma a propriedade da Igreja Católica, pois a cultura da sociedade cristã definia o poder -> Inglaterra da espaço para a ganância através da Revolução Industrial e capitalismo -> Indivíduos sem Deus mas que procuravam exalar virtudes e resolver as coisas com as próprias ideias e sem humildade criavam manifestos Comunistas (Aqui já teríamos uma bifurcação para outro mal) perante a evidente exploração trabalhista de Empresários -> Revolução Francesa pregando a Libertinagem -> Inglaterra cria a instituição mais ardilosa da história chamada Banco Central da Inglaterra -> Inglaterra conquistas terras na América, posteriormente dando lugar aos EUA -> EUA recebem da França uma estátua de uma mulher que representa a pura Babilônia (Estátua da Liberdade) -> Inglaterra cede o seu Imperialismo aos EUA -> EUA se tornam o país mais trapaceiro, ardiloso, aplicando um golpe econômico em todo mundo com o fim do padrão ouro, possuem o Banco Central mais gananciosos do mundo -> EUA criaram e aplicaram em uma sociedade a maior arma de destruição em massa (Bomba Atômica) -> EUA se intrometem em guerras em todo o mundo -> EUA exportam a maior Libertinagem do mundo -> EUA faz acordo junto com a China e Rússia para não acabar acontecendo uma guerra, mas trapaceiros como são os EUA, quebrarão o acordo e o caos acontece.
 
 - Do que adianta estudar a bíblia e não ter conhecimento da história contemporânea? Do que adianta querer ter razão e lógica, mas com coração sem humildade, sem compaixão, sem zelo ao próximo, sem coragem para sacrificar-se por Amor aos mais necessitados, do que adianta um coração sem Amor?
+
+- Que grande miséria deu origem o movimento Protestante, até o Islamismo exalta Maria, mãe de Jesus, como sendo uma mulher exemplar e de pureza. Mas as ramificações da reforma Protestante tomaram para si o título de donos da verdade e passaram a menosprezar a grandiosidade de Maria, e ainda a dizer que a mesma foi pecadora como qualquer uma. Aqui eu só vejo a inveja de filhos perdidos e apegados nos próprios pecados, orgulhosos demais para reconhecer suas próprias misérias, não atoa passaram a ignorar ou menosprezar os sacramentos do confessionário, e até da Eucaristia.
 
 - Apesar de toda crítica ao protestantismo, um indivíduo de outra religião, seja protestante, Islamismo, Hinduísmo, se é de bom coração, pratica caridade, não se apega ao prazeres mundanos, é humilde, sem soberba, sem arrogância, sem ódio, sim Deus não fica triste, apesar das circunstâncias em negar às vezes certos sacramentos, Deus gosta desses corações. Mas sempre exorto a necessidade de confissão, reza e Eucaristia.
 
@@ -4849,9 +4903,11 @@ http://www.siostiodelapa.net/visualizar.php?idt=5813351
 
 - A justiça naqueles que é dado o galardão de Justiça.
 
-- Ao rei na terra um completo estado servidão ao povo compreendendo as minuciosidades de seu povo, sabendo distinguir o necessário do exagero, sendo exemplo para o outros líderes menores.
+- Ao rei na terra um completo estado de servidão ao povo compreendendo as minuciosidades de seu povo, sabendo distinguir o necessário do exagero, sendo exemplo para o outros líderes menores.
 
 - A descentralização e a subsidiariedade, têm um efeito inerentemente estabilizador.
+
+- A humildade e prudência é necessária ao realizar uma tarefa, principalmente quando é algo novo nunca antes visto, reconhecendo em si as limitações (quando houver) para pedir ajuda/auxílio/orientação a outros que talvez tenham maior capacidade. A falha faz parte do processo de melhora contínua.
 
 - O Amor a Deus vem antes de tudo, até da própria vida física. Então não existe temor a morte física, mas a auto condenação da alma atormentada aos próprios erros ao se afastar de Deus.
 
@@ -4869,6 +4925,17 @@ http://www.siostiodelapa.net/visualizar.php?idt=5813351
     - 3- A paixão é fazer aquilo que você mais desejaria.
 
 *Todas as 3 vão aparecer na medida do tempo, e você deve abraçar todas elas no devido tempo oportuno, necessário com humildade deixar crescer alegria, esperança, paz/paciência, as bases do Amor ao realizar todas elas.*
+
+<!-- TOC --><a name="cargos-nepotismo-x-justiça-x-meritocracia"></a>
+#### Cargos: Nepotismo x Justiça x Meritocracia
+
+- Para a ocupação de um cargo não se deve nomear alguém apenas considerando os méritos do indivíduo, mas principalmente o coração, pois Deus não é apenas da razão (méritos/reconhecimento), mas também do coração (Amor/Paixão).
+
+- Não deve julgar a ocupação de um cargo pelo suposto nepotismo se houver, mas pelo coração, vendo se o mesmo se demonstra dedicado, eficiente, paciente e com a paixão de quem serviu por Amor a Deus e ao próximo e não pelas regalias obtidas.
+
+- A maior justiça é que aqueles que forem servidos pelo Servo sejam bem servidos e se tenham por satisfeitos.
+
+- Quem tem na ponta da língua o nepotismo tem consigo no coração a inveja, cobiça/ganância de ocupar o cargo/posição do outro, que ao invés de se dar por satisfeito com os presentes que já possui de Deus, procura reconhecimento dos homens para proveito próprio, e se por acaso a única coisa que enxerga e acusa os outros é o nepotismo do proveito próprio, só confirma mais ainda a ganância, ou seja lá qual for a impureza, que tem no peito.
 
 <!-- TOC --><a name="revolução-industrial"></a>
 #### Revolução Industrial 
@@ -4894,10 +4961,25 @@ Democracia não é Liberdade. Pior que o Petista, é quem defende sua liberdade 
 
 - Sempre existirá no homem preso a matéria, ou que ama a matéria, ou ao homem com coração cheio de ganância de poder, a ilusão de que o acúmulo de matéria, seja em ouro, moeda, dinheiro, estoque de qualquer coisa que considere de valor ou influência, que esse acúmulo lhe levará a ter poder ou felicidade, uma ilusão que só levará ao sofrimento. Pois a alma vai além da matéria, a alma vive após a morte da matéria, e o que fica na alma são as riquezas da mente e do coração em harmonia.
 
+<!-- TOC --><a name="engano-de-satanás"></a>
+#### Engano de Satanás
+
+- Se rezamos no Pai de Nosso "assim na terra como no céu" então fazemos um pedido que a terra seja igual ao céu, a grande questão é, e como Satanás faria para impedir que isso acontecesse ? Existem dois caminhos, o céu e o inferno, o inferno é materialista, e o capitalismo e socialismo/comunismo são materialistas, mas aí que esta a grande estratégia de Satanás, primeiro criou algo puramente materialista e depois uma antítese a sua própria primeira criação, genialmente ele arquitetou que para impedir a proliferação do amor ao próximo (Espírito comunitário), criou uma falso amor deturpado (Socialismo/Comunismo) que deixa Deus em segundo plano ou como uma invenção de controle social, esse falso amor que em sua essência é um mal e logo que cresce se mostra um desastre, escandaliza as ovelhas fazendo as mesmas serem guiadas pelo medo, e passando então a associar que qualquer mera semelhança ao amor ao próximo (espiríto comunitário) é algo ruim pois remete ao comunismo/socialismo, e numa sacada de mestre as ovelhas agora só tem um caminho, o capital e seus setes princípes das trevas (gula, preguição, inveja, luxúria, ganância/avareza, orgulho/soberba, Ira) e o pai de todos, a mentira. Dessa forma o mesmo consegue levar muitas almas para o inferno, um plano bem arquitetado, quase perfeito, só com um impecilho, Jesus Cristo e sua palavra.
+
 <!-- TOC --><a name="política"></a>
 #### Política
 
 - A fé ou confiança não deve ser em um homem de carne, mas sim em Deus, e que o mesmo Deus irá enviar pessoas para fazer acontecer suas promessas, e assim pela fé em em Deus, confiar também naqueles que estão a serviço de Deus, mas na dúvida se o homem está a serviço de Deus deve-se seguir o coração na humildade com esperança e não com medo, com alegria e não tristeza, com paz/paciência e não raiva,  enfim com Amor a Deus e ao próximo e não com ódio, egoísmo ou puramente Amor próprio.
+
+<!-- TOC --><a name="leis"></a>
+#### Leis
+
+- Não existe leis dos homens, isso é apenas uma ilusão, depois do ato criminoso de assassinato, a lei dos homens não ressuscita o defunto, então não valem de nada e são apenas uma ilusão. Mas as leis de Deus prevalecem sobre a morte.
+
+<!-- TOC --><a name="guerra"></a>
+#### Guerra
+
+- A maior bravura não é tirar a vida de outro homem, mas preferir morrer ao invés de tirar a vida de outro homem, mas isso não deve lhe impedir de se colocar a frente em defesa de uma vida mantendo este mesmo valor de não tirar a vida de outro, mesmo que cause a sua morte física, mas ainda vivo em Cristo.
 
 <!-- TOC --><a name="brasil-império-d-pedro-x-barão-de-mauá"></a>
 #### Brasil Império D. Pedro x Barão de Mauá
@@ -4930,7 +5012,7 @@ https://mundoeducacao.uol.com.br/historiadobrasil/barao-maua-industrializacao.ht
 
 - Tenho minhas dúvidas sobre Dom Pedro I e II, pois Dom Pedro I praticava adultério ao trair sua esposa, além de existir indícios que o mesmo participava da Maçonaria, algo que deve ser visto com atenção pois é um pacto além de Deus.
 
-- Dom Pedro II também demonstrou um certo grau de desejo pelo conhecimento, com os ideias semelhantes aos republicanos, e também ao que parece indícios (não afirmação) que o mesmo também pertencia a Maçonaria. O que mais me intriga no caso de Dom Pedro II foi o abandono ao país entregando o mesmo aos Republicanos acreditando que isso fosse um ato grandioso, o mesmo ingenuamente (ou não) subordinou o país a uma República e não ousou discordar dos vários problemas que poderia acontecer ou morrer como martírio pelo povo, mas paralelamente o mesmo ousou discordar do Papa sobre questões de religião, onde Dom Pedro II tentou interferir em nomeações de Bispo pelo Papa, mas em contrapartida ainda defendeu um Estado Laico, algo absolutamente contraditório.
+- Dom Pedro II também demonstrou um certo grau de desejo pelo conhecimento, com os ideias semelhantes aos republicanos, e também ao que parece indícios (não afirmação) que o mesmo também pertencia a Maçonaria. O que mais me intriga no caso de Dom Pedro II foi o abandono ao país entregando o mesmo aos Republicanos acreditando que isso fosse um ato grandioso, o mesmo ingenuamente (ou não) subordinou o país a uma República e não ousou discordar dos vários problemas que poderia acontecer ou morrer como martírio pelo povo, mas paralelamente o mesmo ousou discordar do Papa sobre questões de religião, onde Dom Pedro II tentou interferir em nomeações de Bispo pelo Papa, mas em contrapartida ainda defendeu um Estado Laico (ou liberdade religiosa) apesar da constituição ditar o Estado como Católico, algo absolutamente contraditório no sentido em que o mesmo interferiu em nomeações de Bispo quando também defendia/promovia a liberdade religiosa.
 
 <!-- TOC --><a name="transferência-internacional-de-ouro"></a>
 #### Transferência internacional de ouro
@@ -4963,6 +5045,11 @@ Deuteronômio 23
 
 - Devolver todo o lucro de juros no final do pagamento ou tratar como um dinheiro para o próximo(necessitados/crianças).
 
+<!-- TOC --><a name="fraude-econômica-legalizada"></a>
+#### Fraude Econômica Legalizada
+
+- Um do maiores golpes e fraudes da história se chama sistema Bancário de reservas fracionárias, traduzindo-se crédito bancário e toda sua rede de transferências baseada nessa modelo econômico. Explicação: capacidade de instituições de financeiras, privadas ou públicas de imprimir dinheiro de forma legalizada e dessa forma roubar o poder de compra de da população e genialmente escravizá-la, principalmente a induzindo a uma mentalidade consumista e materialista.
+
 <!-- TOC --><a name="virgem-maria"></a>
 #### Virgem Maria
 
@@ -4971,6 +5058,8 @@ Deuteronômio 23
 - Sem Maria não existiria Jesus. 
 
 - Não se pode duvidar do poder de Deus em elevar Maria a qualquer posição que o próprio senhor Deus desejar.
+
+- A nova Arca da Aliança.
 
 <!-- TOC --><a name="santa-gema-galgani"></a>
 #### Santa Gema Galgani
@@ -5187,50 +5276,50 @@ https://cruzterrasanta.com.br/historia-de-santo-expedito/122/102/
 <!-- TOC --><a name="te-amarei-senhor"></a>
 ##### Te amarei, senhor
 
-- Me chamaste para caminhar na vida contigo
-- Decidi para sempre seguir-te, não voltar atrás 
-- Me puseste uma brasa no peito e uma flecha na alma
-- É difícil agora viver sem lembra-me de ti
+    - Me chamaste para caminhar na vida contigo
+    - Decidi para sempre seguir-te, não voltar atrás 
+    - Me puseste uma brasa no peito e uma flecha na alma
+    - É difícil agora viver sem lembra-me de ti
 
-- Te amarei, Senhor, te amarei, senhor
-- Eu só encontro a paz e a alegria
-- Bem perto de ti
+    - Te amarei, Senhor, te amarei, senhor
+    - Eu só encontro a paz e a alegria
+    - Bem perto de ti
 
-- Eu pensei muitas vezes calar e não dar nem resposta
-- Eu pensei na fuga esconder-me, ir longe de ti
-- Mas tua força venceu e ao final eu fiquei seduzido
-- É difícil viver sem lembra-me ti
+    - Eu pensei muitas vezes calar e não dar nem resposta
+    - Eu pensei na fuga esconder-me, ir longe de ti
+    - Mas tua força venceu e ao final eu fiquei seduzido
+    - É difícil viver sem lembra-me ti
 
-- Te amarei, Senhor, te amarei, senhor
-- Eu só encontro a paz e a alegria
-- Bem perto de ti
+    - Te amarei, Senhor, te amarei, senhor
+    - Eu só encontro a paz e a alegria
+    - Bem perto de ti
 
-- Te amarei, Senhor, te amarei, senhor
-- Eu só encontro a paz e a alegria
-- Bem perto de ti
+    - Te amarei, Senhor, te amarei, senhor
+    - Eu só encontro a paz e a alegria
+    - Bem perto de ti
 
-- Oh, Jesus, não me deixas jamais caminhar solitário
-- Pois conhece a minha fraqueza e o meu coração
-- Vem, ensina-me a viver a vida na Tua presença
-- No amor dos irmãos, na alegria, na paz, na união
+    - Oh, Jesus, não me deixas jamais caminhar solitário
+    - Pois conhece a minha fraqueza e o meu coração
+    - Vem, ensina-me a viver a vida na Tua presença
+    - No amor dos irmãos, na alegria, na paz, na união
 
-- Te amarei, Senhor, te amarei, senhor
-- Eu só encontro a paz e a alegria
-- Bem perto de ti
+    - Te amarei, Senhor, te amarei, senhor
+    - Eu só encontro a paz e a alegria
+    - Bem perto de ti
 
-- Te amarei, Senhor, te amarei, senhor
-- Eu só encontro a paz e a alegria
-- Bem perto de ti
+    - Te amarei, Senhor, te amarei, senhor
+    - Eu só encontro a paz e a alegria
+    - Bem perto de ti
 
-- Te amarei, Senhor, te amarei, senhor
-- Eu só encontro a paz e a alegria
-- Bem perto de ti
+    - Te amarei, Senhor, te amarei, senhor
+    - Eu só encontro a paz e a alegria
+    - Bem perto de ti
 
-- Te amarei, Senhor, te amarei, senhor
-- Eu só encontro a paz e a alegria
-- Bem perto de ti
+    - Te amarei, Senhor, te amarei, senhor
+    - Eu só encontro a paz e a alegria
+    - Bem perto de ti
 
-- Te amarei, Senhor, te amarei, senhor
+    - Te amarei, Senhor, te amarei, senhor
 
 <!-- TOC --><a name="medicina-natural"></a>
 #### Medicina natural
@@ -5326,6 +5415,7 @@ Astronomia: As distâncias e órbitas de planetas, estrelas e outros corpos cele
 Conclusão
 Portanto, a irracionalidade, como um conceito matemático, faz parte da ciência, já que a matemática, incluindo a teoria dos números irracionais, é crucial para a formulação de teorias científicas e para a descrição de fenômenos naturais. A irracionalidade permite que as ciências tratem com precisão problemas que envolvem relações contínuas, curvas e fenômenos que não podem ser descritos por números inteiros ou frações exatas, como é o caso do número π\pi, que surge em muitos contextos científicos.
 "
+
 <!-- TOC --><a name="biologia"></a>
 #### Biologia 
 
@@ -5415,6 +5505,12 @@ O modo CMYK é utilizado para trabalhos gráficos destinados a mídia impressa c
 - A ganância pelo conhecimento é uma feitiçaria psicológica tecnicamente, as palavras, semânticas como bruxaria, feitiçaria, tecnologia, ciência, é tudo a mesma coisa, uma pura técnica de transe usada por seres excepcionalmente inteligentes(anjos caídos) para aprisionar os múltiplos universos(pessoas) existentes, tão reais e irreais ao mesmo tempo, real pois a imaginação existe e por existir já é real. A imaginação já é própria noção de espaço, tempo e matéria. Dependendo da fé e crença e autorização do Eterno, literalmente se consegue mover montanhas, tremer o chão, gerar terremotos, chuvas, trovões, bastando apenas se esvaziar, se desprender das noções de espaço, tempo, e matéria, e matar seu ego, desejos egoístas e avarentos, que os desejos se tornam reais e a luz do paraíso se torna totalmente alcançável. A outra maneira de conseguir tamanho poder sobre a própria realidade é pela magia negra da persuasão, do convencimento, tentando deturpar as consciências das pessoas(universos) criadas por Deus, já no início do Éden, a realidade é moldada a partir do egoísmo e ganância pelo conhecimento, mas sempre existirá a escolha do indivíduo de acreditar.
 
 - A teoria de buracos negros nada mais é do que uma imensa obra de engenharia social pervertendo múltiplos multiversos existentes (pessoas) que são a nossa consciência, tentando convencer que a escuridão do abismo vencem até a luz. A NASA é uma empresa governamental dos EUA, um país comandado pelo próprio Satanás representado e adorado pela Estátua da Liberdade. Sua engrenagem social é muito ampla e muitas vezes a ganância por conhecimento já coloca em transe a todos.
+
+- Um buraco negro que não mais se alimenta absorvendo matéria, está fadado ao tempo a deixar de existir, pois aos poucos perde sua grandeza pela emissão da radiação.
+
+- Buracos negros são reflexos de almas em trevas que não emitem luz, e vivem de sugar as almas aleias(ovelhas/astros). Buracos negros são astros que apesar de existirem estão mortos, pois não apenas não emitem mais a luz, mas também a rejeita, apesar de estar cercado pela luz.
+
+- A luz pode ser o que ela quiser, é tanto que pode se comportar como onda ou partícula.
 
 - A realidade é o que Deus quiser, algo só se torne real se o próprio Deus quiser ou permitir.
 
@@ -6070,7 +6166,7 @@ Vi as ovelhas até que entraram em uma região formosa, em uma terra agradável 
 89:41
 logo que abriam os olhos se cegavam, até que se levantou outra ovelha e as guiou e as conduziu a todas e se abriram seus olhos.
 
-- Aqui a continuação do Cristianismo/povo Hebreu sendo pregado por terceiros.
+- Aqui a continuação do povo Hebreu sendo pregado por terceiros.
 
 89:42
 Os cães, as raposas e os javalis selvagens ficaram a devorar estas ovelhas até que o Senhor das ovelhas levantou um carneiro de em meio delas para as guiar.
@@ -6086,14 +6182,14 @@ Então o Senhor das ovelhas enviou ao cordeiro a outro cordeiro e o ascendeu par
 89:46
 Foi a seu lado e lhe falou em segredo e o subiu a carneiro, fez-o juiz e pastor das ovelhas, mas durante todos estes acontecimentos, os cães oprimiam às ovelhas.
 
-- Aqui quando se diz, o senhor das Ovelhas enviou ao cordeiro a outro cordeiro, parece que seria o primeiro cordeiro Moisés, e o segundo cordeiro, aquela pessoa decide deixar o Espírito Santo entrar e falar diretamente as ovelhas. Esse segundo cordeiro talvez seja Elias.
+- Aqui quando se diz, o senhor das Ovelhas enviou ao cordeiro a outro cordeiro, parece que seria o primeiro cordeiro Moisés, e o segundo cordeiro, aquela pessoa que decide deixar o Espírito Santo entrar e falar diretamente as ovelhas. Esse segundo cordeiro talvez seja Elias.
 
 89:47
 O primeiro carneiro perseguiu o segundo e este segundo saiu e fugiu de sua presença, mas vi até que os cães abateram a aquele primeiro carneiro.
 89:48
 Depois esse segundo carneiro se levantou e conduziu às ovelhas e engendrou numerosas ovelhas e logo dormiu. Uma pequena ovelha se converteu em carneiro e foi o juiz e o líder em seu lugar.
 
-- Aqui as pessoas ao qual o senhor chama para ser tomado pelo Espírito Santo para guiar as demais, mas foge com medo do fardo do Espírito Santo. Mas depois ele voltam a guiar as outras ovelhas.
+- Aqui as pessoas ao qual o senhor chama para ser tomado pelo Espírito Santo para guiar as demais, mas foge com medo do fardo do Espírito Santo. Mas depois eles voltam a guiar as outras ovelhas.
 
 89:65
 Vi quando esses pastores pastorearam em seu tempo e começaram a matar e destruir a mais ovelhas das que foram oferecidas e eles entregaram a essas ovelhas em mãos dos leões.
@@ -6398,13 +6494,12 @@ https://www.todamateria.com.br/sinapses/
 
  - Sim, acho que foi umas 2 semanas depois de ter suplicado a Deus por uma resposta. E sim, eu me lembro que a 3 ou 4 meses atrás eu tinha pego um papel semelhante e talvez tenha colocado debaixo de uma daquelas mesas, sendo que poderia alguém precisar daquela mensagem, sendo eu ainda uma pessoa que acreditava. Mas eu não imaginava e nem me lembrava de ter feito isso, e como aquele papel ainda permaneceria ali depois de tanto tempo, e em uma mesa em uma posição diferente daquela que eu tinha cochilado da última vez meses atrás. A coincidência continuava alta demais para achar que não teve um dedo Deus no meio disso tudo, então decido permanecer na crença da existência de Deus, e na tentativa de ser obediente, mas acreditar que Deus existe é diferente de ter fé nele. E talvez ser obediente seja diferente de Amar a Deus.
 
-- Pouco tempo tive mais uma prova, pois o senhor sabia que ainda tinha algumas dúvidas. E num dia em que estava no hospital fazendo um exame, um homem veio com um desses folhetos contendo a palavra de Deus e me entregou um a mim, e um outro folheto a um senhor que estava do meu lado. Quando li o folheto, não era mais para dizer sobre a existência de Deus, mas sobre um problema que tive, discussão com minha querida Mãe, e o papel falava justamente disso. Fiquei na dúvida se esses papeis eram todos iguais, então pedi ao senhor do meu lado para ler o folheto que ele tinha recebido, e esse senhor pegou o meu folheto para ler, o folheto que esse senhor recebeu falava sobre combate ao vícios como o Álcool, nesse momento eu percebi que o papel direcionado a mim foi certeiro em meus problemas, pois não tinha problema com álcool, mas sim uma leve discussão com minha mãe. O senhor que estava do meu lado depois de ler o papel que eu tinha recebido, chegou para mim e disse: "tome filho, esse papel aqui é para você mesmo, me de o que eu recebi"
+- Pouco tempo depois tive mais uma prova, pois o senhor sabia que ainda tinha algumas dúvidas. E num dia em que estava no hospital fazendo um exame, um homem veio com um desses folhetos contendo a palavra de Deus e me entregou um a mim, e um outro folheto a um senhor que estava do meu lado. Quando li o folheto, não era mais para dizer sobre a existência de Deus, mas sobre um problema que tive, discussão com minha querida Mãe, e o papel falava justamente disso. Fiquei na dúvida se esses papeis eram todos iguais, então pedi ao senhor do meu lado para ler o folheto que ele tinha recebido, e esse senhor pegou o meu folheto para ler, o folheto que esse senhor recebeu falava sobre combate ao vícios como o Álcool, nesse momento eu percebi que o papel direcionado a mim foi certeiro em meus problemas, pois não tinha problema com álcool, mas sim uma leve discussão com minha mãe. O senhor que estava do meu lado depois de ler o papel que eu tinha recebido, chegou para mim e disse: "tome filho, esse papel aqui é para você mesmo, me de o que eu recebi"
+- Não conhecia aquele homem, não sei se tinha problemas com álcool, mas pelo seus dizeres, aquele que aquele folheto foi certeiro em saber os seus problemas tbm.
 
-- Não conhecia aquele, não sei tinha problemas com álcool, mas pelo seus dizeres, aquele que aquele folheto foi certeiro em saber os seus problemas tbm.
+- Apesar de depois disto decidir acreditar em Deus, mas sem tanta fé assim (se existia algo acho que era bem pouco), eu só decidi não entrar para a vida de crimes, mas ainda defendia sistemas políticos autoritários, sistemas econômicos lógicos de mercado, ainda me levava pela razão, mas sem compaixão para com o próximo, criminosos e pessoas que eu considerava ignóbeis moralmente, e também ao que considerava cheios de frescura em minha soberba, mas desde que não entrassem em confronto comigo (é claro, pois ainda nem dava para dizer que era um homem de fé).
 
-- Apesar de agora decidir acreditar em Deus, mas sem tanta fé assim(se existia algo acho que era bem pouco), eu só decidi não entrar para a vida de crimes, mas ainda defendia sistemas políticos autoritários, sistemas econômicos lógicos de mercado, ainda me levava pela razão, mas sem compaixão para com o próximo, criminosos e pessoas que eu considerava ignóbeis moralmente, cheios de frescura, em minha soberba, mas desde que não entrassem em confronto comigo (é claro, pois ainda nem dava para dizer que era um homem de fé).
-
-- Depois que vi que os sistemas políticos iriam falhar miseravelmente em um ciclo infinito sem fim, decidi curtir mais a vida em festas, farras semanalmente quase como um vício, querendo a todo momento dopamina, e esquecer esses problemas de uma sociedade que considerava falida. 
+- Depois dessa dúvida e de chorar a Deus por uma prova que ele existe, vi alguns anos depois também que os sistemas políticos iriam falhar miseravelmente em um ciclo infinito sem fim (na época eu não via solução), decidi então curtir mais a vida em festas, farras semanalmente quase como um vício, querendo a todo momento dopamina, e esquecer esses problemas de uma sociedade que considerava falida. Passei a ter apenas a certeza da existência de Deus, mas era um pequeno passo de fé, mas acreditar que Deus existe até Satanás acredita, depois disso passei a apenas observar as coisas sem julgamento, sem tratar nada como de fato verdade ou mentira, apenas observando e curtindo a vida, vendo os resultados e consequências, sem me comprometer com nada, se dizia algo sobre algum conhecimento não dizia como verdade e sim que fulano falou, seja esse fulano um filósofo, cientista, teólogo, espírita, ufólogo, ou uma simples pessoa, se ele está certo ou errado o tempo diria junto as consequências, continuava rezando e pedindo sabedoria a Deus para tomar as decisões certas em meio a um mundo caótico.
 
 - A minha frieza parecia que só tinha piorado, mas como eu ainda acreditava em Deus e me sentia cheio de dádivas e bençãos, pois tinha saúde, conhecimento, condição financeira estável, não tinha o que reclamar de mulheres, então fui na Igreja apenas para agradecer a Deus, segui os rituais litúrgicos, fiz a comunhão da Eucaristia, depois disso começou a acontecer coisas coincidentes demais na minha vida. Percebo agora que não foi o ritual litúrgico em si apenas, mas minha fé em não contradizer os rituais da Santa Igreja Católica, por ter fé que a Santa Igreja Católica está a serviço de Deus, e mesmo que aqueles que precedessem a missa fossem corruptos, a minha fé faria com que tudo fosse um presente de Deus para mim.
 
@@ -6679,7 +6774,7 @@ URL: https://youtu.be/lqwY6dV3Mxw?si=VTjBjhdfJMV9aY7L
 
 - O amor de Deus é verdadeiro e paciente, parece de corno mas não eh. Um corno é carente e aceita a ex que continua nas vaidades, Deus aceita de volta só para ensinar a pessoa a ser melhor, e salvar sua alma do sofrimento. Mas não confunda paciência com tolerância.
 
-- Tentar acima de tudo fazer o mais difícil, amar a Deus sobre todas as coisas, o primeiro e principal mandamento, pois com ele não temerás a morte, nem terás medo. O grande problema é que se você esquecer de amar ao próximo, não ao corpo ou ao mundo, mas a alma do próximo, talvez você acabe esquecendo de amar a Deus, e apenas passar a ser obediente a ele, sendo que uma pessoa sem Amor, é uma pessoa incompleta. Será parecido com um ateu.
+- Tentar acima de tudo fazer o mais difícil, amar a Deus sobre todas as coisas, o primeiro e principal mandamento, pois com ele não temerás a morte, nem terás medo. O grande problema é que se você esquecer de amar ao próximo, não ao corpo ou ao mundo, mas a alma do próximo, talvez você acabe esquecendo de amar a Deus, e apenas passar a ser obediente a ele, sendo que uma pessoa sem Amor, é uma pessoa incompleta e será parecido com um alguns tipos de ateus/niilistas.
 
 - Não amar o próximo, não se importar com o próximo que faz as escolhas erradas que levarão ao sofrimento, significa também não socorrer o próximo quando o mesmo estiver morrendo, significa tirar a vida do próximo sem pestanejar quando tiver a oportunidade porque o mesmo lhe irritou. Não amar o próximo significa dar lugar as trevas ao invés da luz.
 
@@ -6731,7 +6826,7 @@ https://www.espacojames.com.br/?cat=85&id=8387
 <!-- TOC --><a name="minha-decisão"></a>
 #### Minha decisão 
 
-- Percebo que meu egoísmo poderá levar ao sofrimento do mundo, que a minha busca por felicidade verdadeira junto a Cristo em um matrimônio de homem e mulher não é o que Deus quer para mim, ele pede que eu ajude ele, percebo que minha escolha de matrimônio com uma mulher vai jogar todo trabalho feito fora, pois no dia que eu me casar com uma mulher, mesmo que o meu casamento desse certo, eu não seria feliz pois não consigo ignorar a infelicidade do próximo. Terei de ser menos egoísta e servir a Deus como ele quiser.
+- Percebo que talvez meu egoísmo poderá levar ao sofrimento do mundo, que talvez a minha busca por felicidade verdadeira junto a Cristo em um matrimônio de homem e mulher não é o que Deus quer para mim, ele pede que eu ajude ele, percebo que minha escolha de matrimônio com uma mulher vai jogar todo trabalho feito fora, pois no dia que eu me casar com uma mulher, mesmo que o meu casamento desse certo, eu não seria feliz pois não consigo ignorar a infelicidade do próximo. Terei de ser menos egoísta e servir a Deus como ele quiser.
 
 <!-- TOC --><a name="não-esquecer"></a>
 #### Não esquecer
