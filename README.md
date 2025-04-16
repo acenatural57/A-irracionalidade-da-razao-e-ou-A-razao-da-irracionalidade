@@ -457,7 +457,7 @@ Gênesis 1
 
 2. A terra estava sem forma e vazia; as trevas cobriam o abismo e o Espírito de Deus pairava sobre as águas.
 
-- Espirito de Deus olhando para sua ordem de criação do universo e vendo sua presença e vida na água, e fora dela a morte ou abismo.
+- Espírito de Deus olhando para sua ordem de criação do universo e vendo sua presença e vida na água, e fora dela a morte ou abismo.
 
 3. Deus disse: “Faça-se a luz!”. E a luz foi feita.
 4. Deus viu que a luz era boa, e separou a luz das trevas.
@@ -1846,9 +1846,9 @@ Lucas 19
 9. Disse-lhe Jesus: “Hoje entrou a salvação nesta casa, porquanto também este é filho de Abraão.
 10. Pois o Filho do Homem veio procurar e salvar o que estava perdido”. (= Mt 25,14-30)
 
-- Não é sobre não possuir bens, dinheiro ou possos, mas sim sobre aonde estar o seu coração, que não deve amar mais ao dinheiro do que a Deus tornando-se assim avarento. Se tens bens, posses ou dinheiro, saiba que isto não é seu mas de Deus e que foi lhe delegado a cuidar disto para servir ao próximo e garantir o necessário para seu sustento.
+- Não é sobre não possuir bens, dinheiro ou possoe, mas sim sobre aonde estar o seu coração, que não deve amar mais ao dinheiro do que a Deus tornando-se assim avarento. Se tens bens, posses ou dinheiro, saiba que isto não é seu mas de Deus e que foi lhe delegado a cuidar disto para servir ao próximo e garantir o necessário para seu sustento.
 
-- A dosagem do remédio vai depender da gravidade da doença, e certas vezes o remédio é amargo como um acafrão (gengibre). Enquanto para um a dosagem era se desprender de tudo devido a gravidade da doença do apego ao dinheiro que sujava a alma, para outro o apego ao dinheiro não existia tanto, precisando assim deste apenas uma dosagem menor.
+- A dosagem do remédio vai depender da gravidade da doença, e certas vezes o remédio é amargo como um açafrão (gengibre). Enquanto para um a dosagem era se desprender de tudo devido a gravidade da doença do apego ao dinheiro que sujava a alma, para outro o apego ao dinheiro não existia tanto, precisando assim deste apenas uma dosagem menor.
 
 <!-- TOC --><a name="consciência-x-sonhos-aos-dormir"></a>
 #### Consciência x Sonhos aos dormir
@@ -1866,6 +1866,8 @@ Lucas 19
 
 <!-- TOC --><a name="a-dádiva-da-vida"></a>
 #### A dádiva da vida
+
+- Uma árvore não cresce para dar frutos para ela mesma, mas para as demais criaturas ao redor.
 
 - É necessário manter o corpo, mente e Espírito em equilíbrio e para isso deve-se evitar o mal, e praticar o bem tanto em Corpo, Mente e Espírito.
 
