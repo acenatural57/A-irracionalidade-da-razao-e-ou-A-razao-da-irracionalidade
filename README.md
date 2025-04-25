@@ -4939,6 +4939,8 @@ http://www.siostiodelapa.net/visualizar.php?idt=5813351
 
 - Quem tem na ponta da língua o nepotismo tem consigo no coração a inveja, cobiça/ganância de ocupar o cargo/posição do outro, que ao invés de se dar por satisfeito com os presentes que já possui de Deus, procura reconhecimento dos homens para proveito próprio, e se por acaso a única coisa que enxerga e acusa os outros é o nepotismo do proveito próprio, só confirma mais ainda a ganância, ou seja lá qual for a impureza, que tem no peito.
 
+- Ninguém tem direito a nada a não ser ao livre-arbítrio e pela suas escolhas as respectivas consequências. Se por acaso o ser humano hoje após a sua queda tem algo a mais além de dor e sofrimento, não é por mérito ou direito próprio, mas pela graça de Deus, que por sua infinita bondade e misericórdia deu de graça. Então não se ensoberba em sua boca para falar em direito, pois justiça por justiça, que os canibais egoístas, orgulhos e avarentos se devorem umas os outros e depois sejam entregues ao logos.
+
 <!-- TOC --><a name="revolução-industrial"></a>
 #### Revolução Industrial 
 
