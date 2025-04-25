@@ -5326,6 +5326,8 @@ https://cruzterrasanta.com.br/historia-de-santo-expedito/122/102/
 <!-- TOC --><a name="medicina-natural"></a>
 #### Medicina natural
 
+- Santa Hidelgarda
+
 - Vida: água
 - Hidratação corporal: água
 - Refrescante corporal: água
@@ -5335,6 +5337,10 @@ https://cruzterrasanta.com.br/historia-de-santo-expedito/122/102/
 - Sistema imunológico: Laranja (Vitamina C)
 - Descongestionante nasal: sal com água morna
 - Tratamento de feridas e cortes: solução salina (água e sal)
+
+- A vida em si já é o próprio milagre, encontramos na vida da natureza tudo que precisamos, nosso alimento, nossos remédios para dores, para nossa higiene, tudo criado por Deus para nós, mas somos que por sermos cabeças duras que não enxergamos o milagre que já esta nos nossos olhos, somos nós que insatisfeitos com o tudo queremos mais e em nossa soberba e avareza queremos dizer que fazemos melhor.
+
+- Os milagres de Cristo não foram com objetivo de curar doentes fisicamente, mas principalmente para dar testemunho de sua autoridade, pois para curar os doentes já existe a vida por si.
 
 <!-- TOC --><a name="lavagem"></a>
 ##### Lavagem
