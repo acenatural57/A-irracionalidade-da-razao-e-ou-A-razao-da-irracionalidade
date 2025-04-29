@@ -2587,7 +2587,7 @@ J. Robert Oppenheimer (o criador da monstruosa Bomba Atômica), que agora em nos
 
 - Não espere entrega emocional de uma pessoa fria quando você não transparece confiança. Não espere essa entrega quando você tem medo, e busca segurança em vaidades e promiscuidades, seja contatinhos, flertes, ou meros desejos de mais de uma pessoa. A sua falta de foco é evidente. Você dificilmente saberá se uma pessoa fria tinha algum interesse a mais em você, ou se simplesmente lhe tratou como um mero objeto momentâneo, se houver uma sútil demonstração de afeto, será só um teste para enxergar sua capacidade.
 
-- Idade avançada/experiência não é sinônimo de sabedoria, nem juventude de inovação, do que adianta ter experiências mas não aprender nada com elas, e continuar andando em círculos como em um Labirinto? Sabedoria vem de aprendizado de diferentes experiências ou observações, e principalmente da humildade de reconhecer que nada sabe apesar de todos os anos e experiências, estar disposto a aprender com seus erros e com ensinamentos/perspectivas de outras pessoas, e não de manter os mesmos erros repetitivamente em seu orgulho sem saber reconhece-los ou. admiti-los. Inovação vem do entusiasmo, curiosidade e desejo pelo desconhecido. Ao se deparar com o Novo, a resiliência é de extrema importância, pois será preciso conhecer a si mesmo, seus limites, e estar preparado da melhor forma possível para o desconhecido.
+- Idade avançada/experiência não é sinônimo de sabedoria, nem juventude de inovação, do que adianta ter experiências mas não aprender nada com elas, e continuar andando em círculos como em um Labirinto? Sabedoria vem de aprendizado de diferentes experiências ou observações, e principalmente da humildade de reconhecer que nada sabe apesar de todos os anos e experiências, estar disposto a aprender com seus erros e com ensinamentos/perspectivas de outras pessoas, e não de manter os mesmos erros repetitivamente em seu orgulho sem saber reconhece-los ou admiti-los. Inovação vem do entusiasmo, curiosidade e desejo pelo desconhecido. Ao se deparar com o Novo, a resiliência é de extrema importância, pois será preciso conhecer a si mesmo, seus limites, e estar preparado da melhor forma possível para o desconhecido.
 
 - A quantidade de pessoas perdidas em suas próprias vaidades é assustadora. Mulheres que se colocaram em um pedestal de "mereço ser bem tratada", até compreendo o histórico de traumas que viveram ou observaram. Mas o seu discurso não carrega a energia de querer um homem para ama-lo, e sim de apenas ser servida. E servir não é apenas dinheiro ou mimos, também é sexo, carências afetiva, companhia do medo da solidão, tudo vaidades da carne. Homens que não enxergam isso acabam se magoando, os que enxergam, as usam e descartam como mero objeto, a briga passa a ser de quem é mais desapegado, não das vaidades e coisas mundanas, mas na negligência de não entender do que devem se desapegar, se perdem no egoísmo e frieza e se veem cada vez mais vazios(as). Troque homem por mulher neste texto, e o resultado pode ser o mesmo.
 
@@ -2875,6 +2875,8 @@ Eclesiastes 7
 
 - Bendito seja as crianças, ingênuos e inocentes, pois sua alma já pertence a Deus. Mas aí de ti que dizes para uma boa alma que ela é indefesa, que a desmerece e a diminuí com discursos espúrios reduzindo a grandeza de uma criança por sua pureza, não é a criança que precisa de salvação mas tu que estas entregue ao medo, que se achas ensoberbecido e sábio pela idade, pelas supostas experiências que vivesse, mas de nada sabe. Pois se soubesse de algo, saberia que não é a criança que está em perigo mas tu, que pecas, erras, e nem se confessas, que dormes mal cheio de angústias. Um aviso lhe digo, não escandalize um pequeno com a maldade do mundo, seja sábio ao ensinar sobre o bem e mal, para que o mesmo veja o mal como ruim, e o bem como bom. Não seja um morno que ver bondade no medo, ou utilidade nele, ou utilidade em qualquer que seja das trevas.
 
+- Do que vale a experiência do fracasso sem nunca reconhecer o que é o sucesso, mesmo que o sucesso esteja diante dos seus olhos ? Do que vale se enriquecer de sabedoria das misérias do inferno, sem conseguir enxergar os tesouros dos céu ?
+
 - E quem disser "você não é Jesus" para repreender alguém que tenta seguir os passos de Jesus, que quando esta pessoa tenta ser imagem e semelhança de Deus você a repreende, que você para se manter no pecado quer também desvirtuar seu irmão, miserável és tu e deveria comprar ouro provado do fogo do Senhor dos Exércitos. Mas também cuidado o irmão que tenta seguir os passos de Deus e se ensoberbe se achando melhor que os pecadores, pois a soberba não é de Deus. Não desista de seus irmãos que estão em pecado, ofereça sempre a outra face quando eles lhe ofender, e tente pacientemente em diferentes estratégias, não apenas em palavras mas em maneiras de converter um coração.
 
 <!-- TOC --><a name="quente-morno-frio"></a>
@@ -3154,7 +3156,7 @@ Lucas 17
 
 - O inferno é um estado de completa ausência de Deus(Luz), é para quem conscientemente escolheu o mal, é para quem conscientemente tendo noção das consequências do mal que fazia ao próximo continuou sem arrependimento verdadeiro, veja que é uma questão de consciência, se você rouba e não tem noção do mal que fez ao próximo, seria no máximo um purgatório. Mas para quem tem o prazer, o desejo, que faz por maldade conscientemente, e morre fisicamente neste estado, é alguém que já estava totalmente morto por dentro, pois estava com a alma ainda negra e manchada de pecados mortais (conscientemente fazendo o que não devia), que por escolha ou talvez falta de oportunidade (ausência de um guia de luz) não se mortificou nos pecados para Ressuscitar em Cristo ainda em vida física (veja como a morte aqui tem um sentido diferente). Para ainda em vida física purificar a alma que está em pecados mortais, é preciso um confessionário e um arrependimento verdadeiro.
 
- - Uma alma que vai para o inferno é uma alma sem luz, sem esperança, em que passará a eternidade com seus medos mais sombrios e profundos lhe atormentando, e se você não se lembrar, fique tranquilo que existirá outros espíritos das trevas (demônios) para lhe lembrar e sugar(devorar) o restante de energia(vida) espiritual que restar na sua alma, eles sugam através do medo, tristezas e raivas, ansiedades (medo em um nível maior), que os mesmos irão sentir ou até provocar em sua alma, por isso a necessidade de aceitar a morte em paz, para que ao morrer tenha colhido e guardado na mente e principalmente coração as coisas de Deus (humildade, alegria, esperança, paz, penitência/dor, as bases do Amor de Deus), e que ao serem provados pelo fogo, não serão devorados.
+ - Uma alma que vai para o inferno é uma alma sem luz, sem esperança, em que passará a ter os seus medos mais sombrios e profundos lhe atormentando no lugar de morte eterna, e se você não se lembrar, fique tranquilo que existirá outros espíritos das trevas (demônios) para lhe lembrar e sugar(devorar) o restante de energia(vida) espiritual que restar na sua alma, eles sugam através do medo, tristezas e raivas, ansiedades (medo em um nível maior), que os mesmos irão sentir ou até provocar em sua alma, por isso a necessidade de aceitar a morte em paz, para que ao morrer tenha colhido e guardado na mente e principalmente coração as coisas de Deus (humildade, alegria, esperança, paz, penitência/dor, as bases do Amor de Deus), e que ao serem provados pelo fogo, não serão devorados.
 
 - O maior problema em morrer com o peso na consciência e não conseguir se elevar, é que vai ter outros espíritos para lhe fazer companhia, alguns deles vão ser como você almas penadas, outros são Espíritos malignos antigos, que vão lhe devorar, lhe sugar o resto de energia Espiritual que você tem, e isso independe do seu estado de inferno ou purgatório, eles vão lhe sugar lhe atormentando com palavras, zombarias, provocação, lhe conhecem tão bem, até mais do que você mesmo (isso para quem nunca meditou), você terá medo, e ele sobrevive sugando sua energia de medo, você terá tristeza e ele sobrevive sugando essa tristeza, você terá raiva e ele vai adorar, você vai xingá-lo e ele irá dizer: "sou mesmo", e quanto mais raiva você tiver, mais vai ser sugado, você não vai conseguir calar a boca dele, você não pode conseguir toca-lo pois espírito são imateriais, e para quem acha que palavras machucam, não suportar provocação e já se tomam de raiva e angústias, vocês são um prato gordo e cheio para serem devorados.
 
@@ -4166,6 +4168,8 @@ Perspectiva: Em ambas vai existir a batalha espiritual, e certos personagens na 
     - 1.1- Nações inimigas como Irã, Síria, Egito, Líbano com energias ruins vinda de raiva e ódio, e Israel também em seu pecado caindo no mundo e sendo parte da Babilônia que vem dos EUA e Reino Unido.
   - 2- Israel como um indivíduo escolhido de Deus.
     - 2.1- Nações inimigas são pessoas ao redor com energias ruins lhe desejando o mal, e você também no pecado caindo no mundo e sendo manipulado por energias ruins.
+  - 3- A nova Israel
+    - 3.1- A pedra rejeitada se tornou a pedra Angular da nova Aliança, nova Israel (Cristãos). Muitas ovelhas desgarradas, mas que pertencem ao senhor. Deus se compadecerá de Jacó quando o mesmo se redimir, e depois irá atrás daqueles que fizeram mal a Jacó.
 
 Isaías 27
 
@@ -4185,7 +4189,7 @@ Isaías 27
 
 - Israel vai cair por todos os pecados e iniquidades, a cidade(Pessoas) ficará um deserto(vazias) pois o amor a si mesmo e aos desejos do mundo fará com que se perca em si, até entenderem que só Deus lhes salva, não os EUA, não as Armas, não as Bombas, não as festas, não as raves, não se vence um inimigo que não teme a morte com armas ou coisas do mundo. Após se arrepender e passar adorar ao senhor Deus, Jacó finalmente irá encontrar ele.
 
-- Jacó o filho que se perdeu, o filho da perdição. E como Israel muitas vezes se perde, mas também se redime.
+- Jacó o filho que se perdeu, o filho da perdido. E como Israel muitas vezes se perde, mas também se redime.
 
 Isaías 28
 
@@ -4333,9 +4337,9 @@ Padre Fábio Marinho
 
 Apocalipse 1
 
-10. Em um domingo, fui arrebatado em êxtase, e ouvi, por trás de mim, voz forte como de trombeta,
+10. Caí em êxtase, no dia do Senhor, e ouvi por detrás de mim uma grande voz, como de trombeta,
 
-- Dia do senhor é algo que chegará a todos, pois todos iremos morrer um dia, mas poucos escolheram ressuscitar em Cristo.
+- Dia do senhor é algo que chegará a todos, pois todos iremos morrer um dia, mas poucos escolhem morrer e ressuscitar em Cristo. Bendito aquele que mata o velho e ressuscita em Cristo ainda vivo na carne.
 
     - Uma Charada. O que é certo que já aconteceu no passado e que é certo que vai acontecer para todos ?
 
@@ -6579,7 +6583,7 @@ URL: https://youtu.be/lqwY6dV3Mxw?si=VTjBjhdfJMV9aY7L
 
 - Mudança necessária da minha parte:
 
-    - Necessário aceitar o mal das pessoas sem revidar, pois o meu mal levará levará a morte, seja a minha ou do próximo. O mal está em mim pois aprendi a desprezar o mundo, seja por experiências pessoais ou por indignação com o que acontece em volta, quando na verdade eu preciso ama-lo com seus defeitos. Não pensar em como eu me sinto, pois o que eu tenho guardado profundamente é desprezo ao mundo, mas sim como o outro está se sentindo para levar o mesmo a lhe intimidar, ameaçar ou lhe provocar. Às vezes são problemas pessoais, rotinas pesadas, frustrações que fazem as pessoas serem assim.
+    - Necessário aceitar o mal das pessoas sem revidar, pois o meu mal levará a morte, seja a minha ou do próximo. O mal está em mim pois aprendi a desprezar o mundo, seja por experiências pessoais ou por indignação com o que acontece em volta, quando na verdade eu preciso ama-lo com seus defeitos. Não pensar em como eu me sinto, pois o que eu tenho guardado profundamente é desprezo ao mundo, mas sim como o outro está se sentindo para levar o mesmo a lhe intimidar, ameaçar ou lhe provocar. Às vezes são problemas pessoais, rotinas pesadas, frustrações que fazem as pessoas serem assim.
     - Necessário externalizar apenas sua parte boa, amando e tendo compaixão com o próximo na esperança de que melhore. Não amar a si mesmo, pois em mim existe uma parte ruim, que se estimulada irá fazer mal as pessoas ao redor.
     - Ter cuidado com a falsa alegria de prazeres carnais, a excitação na felicidade em coisas extremas, como adrenalina, tesão, perigos. É uma alegria instável que pode de um segundo ao outro levar ao ódio que existe em você. Tenha a alegria da esperança e amor.
 
