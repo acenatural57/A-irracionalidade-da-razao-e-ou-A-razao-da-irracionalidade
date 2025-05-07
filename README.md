@@ -132,6 +132,7 @@
       + [Purificação](#purificação)
       + [Eucaristia / Comunhão ](#eucaristia-comunhão)
       + [Santa Missa](#santa-missa)
+      + [Santa Igreja Católica ](#santa-igreja-católica)
       + [Santos e interseções](#santos-e-interseções)
       + [Santidade](#santidade)
       + [Morte, Céu, Inferno, Purgatório](#morte-céu-inferno-purgatório)
@@ -244,6 +245,9 @@
          - [Reflexões da música](#reflexões-da-música)
          - ["1 Hour relaxing PIANO" e "10 Pieces by Ludovico Einaudi \\ Relaxing Piano"](#1-hour-relaxing-piano-e-10-pieces-by-ludovico-einaudi-relaxing-piano)
          - [Te amarei, senhor](#te-amarei-senhor)
+         - [Conheço um coração](#conheço-um-coração)
+         - [Música: Romanos 12](#música-romanos-12)
+         - [Terra seca](#terra-seca)
       + [Medicina natural](#medicina-natural)
          - [Lavagem](#lavagem)
          - [Óleos vegetais](#óleos-vegetais)
@@ -1748,9 +1752,13 @@ Quando sua pulsação está acelerada é preciso deixar seu corpo em movimento, 
 
 Descobri isto ao jejuar, não alimentar o corpo, não descansar e continuar fazendo atividades, e nem descansar a mente. Ao final meu coração continuava bombeando, mas meu corpo e mente estavam gastos, o corpo precisava da mente, mas a mente estava com sono e fraca, pois mal havia dormido e voltou a trabalhar e a mente teve medo e não soube resolver por se só, então ordenou ao corpo que praticasse atividades físicas para que entrasse em sintonia com o coração, e os 2 juntos acordassem a mente que tinha sono.
 
-Treinar o corpo não pela competição, ambição ou ganância, seja contra si mesmo ou contra quem quer que seja, nem de pegar mais peso, nem pela estética, mas para manter o corpo saudável, com articulações em dia, fazendo o movimento do corpo com as amplitudes, intensidade e velocidades adequadas, evoluindo sem ambições, ganâncias, ou competição, apenas com a naturalidade e disciplina no processo, e sempre em equilíbrio de corpo, mente e espírito.
+Treinar e cuidar do corpo não pela competição, ambição ou ganância, seja contra si mesmo ou contra quem quer que seja, nem de pegar mais peso, nem pela estética, mas para manter o corpo saudável, com articulações em dia, fazendo o movimento do corpo com as amplitudes, intensidade e velocidades adequadas, evoluindo sem ambições, ganâncias, ou competição, apenas com a naturalidade e disciplina no processo, e sempre em equilíbrio de corpo, mente e espírito.
 
 - Satanás não sabe o que pensamos exatamente a não ser que verbalizemos seja em palavras ou ações do corpo. Nas nossas cabeças, ele só sabe nos manipular quando externalizamos ou deixamos prevalecer nossa fraqueza na concupiscência (desejos) da carne.
+
+- Para o corpo: trabalho, exercícios e alimentação;
+- Para a mente: leitura e discernimento do evangelho;
+- Para o coração: oração, confissão e eucaristia;
 
 <!-- TOC --><a name="deus-sem-você-é-deus"></a>
 #### Deus sem você é Deus
@@ -2957,11 +2965,11 @@ Exôdo 20
 
 - Batismo é nascer/emergir em Cristo, benção de Cristo, se tornar corpo ordeiro de Cristo independente de ter pecado ou não. Depois de todas as divergências entre Católicos e protestantes, eu não tenho a menor dúvida.
 
-- O nascimento de bebê sozinho já é uma benção de Deus, seja ela batizada ou não. Um pai procura sempre abençoar o seu filho, esteja o seu filho aceitando a benção ou não. O batismo é uma proteção para a criança pelo pecado original da concupiscência (desejo da carne / ego) que sempre estará presente em toda a criatura viva até a vinda do senhor, e mesmo que ela não tenha pecado logo no nascimento pois não tem consciência de seus atos, de discernir o certo do errado, algum dia ela passará a cometer um pecado, mas desde que tenha recebido o Batismo com fé daqueles que a amam, a criança estará de certa forma protegida pela benção do Batismo, e a purificação eu não interpreto de forma literal como sendo na carne da criança, mas para todo o ambiente que a criança for levada que será diante mão purificado pelos anjos incumbidos de protege-las, mas ainda será necessário ao longo da vida continuar os demais sacramentos de purificação da alma.
+- O nascimento de bebê sozinho já é uma benção de Deus, seja ela batizada ou não. Um pai procura sempre abençoar o seu filho, esteja o seu filho aceitando a benção ou não. O batismo é uma proteção para a criança pelo pecado original da concupiscência (desejo da carne / ego) que sempre estará presente em toda a criatura viva até a vinda do senhor, e mesmo que ela não tenha pecado logo no nascimento pois não tem consciência de seus atos, de discernir o certo do errado, algum dia ela passará a cometer um pecado, mas desde que tenha recebido o Batismo com fé daqueles que a amam, a criança estará de certa forma protegida pela benção do Batismo, e a purificação eu não interpreto de forma literal como sendo na carne da criança, mas para todo o ambiente que a criança for levada que será diante mão purificado pelos anjos incumbidos de protegê-las, mas ainda será necessário ao longo da vida continuar os demais sacramentos de purificação da alma.
 
 - Um adulto que batiza seu bebê demonstra a intenção no coração dos pais de zelar e cuidar do filho e ter fé que seu filho seja abençoado pelo Senhor Jesus Cristo, como pode-se dizer que existe maldade neste ato ? Como pode-se condenar um ato tão altruísta em desejar bençãos para uma criança? Como pode-se condenar e querer remover uma ato de prevenção contra a maldade que domina este mundo ?
 
-- Alguns dirão, Ah mas a criança não consegue escolher a religião quando é um bebê, exatamente por isso que cabe a fé aos pais. A fé dos pais da criança em solicitar bençãos do senhor Jesus Cristo para seu bebê.
+- Alguns dirão: "Ah mas a criança não consegue escolher a religião quando é um bebê", exatamente por isso que cabe a fé aos pais. A fé dos pais da criança em solicitar bençãos do senhor Jesus Cristo para seu bebê.
 
 Jeremias 1
 
@@ -2975,11 +2983,11 @@ Salmo 138
 16. Cada uma de minhas ações vossos olhos viram, e todas elas foram escritas em vosso livro cada dia de minha vida foi prefixado, desde antes que um só deles existisse.
 17. Ó Deus, como são insondáveis para mim vossos desígnios! E quão imenso é o número deles!
 
-- Ah mas isso não é salvação da criança. Que salvação vós está falando ?A física de que nada de ruim vai acontecer aquela criança? Salvação da alma da criança? Bem, a da alma, para mim é muito claro e evidente que uma criança bebê já pertence ao reino dos céus, esteja ela batizada ou não, isto é minha fé em Cristo, pois não existe nada que condene aquele pequeno. Dito isto, mesmo que um malfeito físico aconteça com um recém nascido, não é pela criança que lamento, mas pelos vivos que hão de sofrer, pois para a glória de Deus pai todo poderoso jaz a criança nos céus.
+- "Ah mas isso não é salvação da criança". Que salvação vós está falando ? A física de que nada de ruim vai acontecer aquela criança? Salvação da alma da criança? Bem, a da alma, para mim é muito claro e evidente que uma criança bebê já pertence ao reino dos céus, esteja ela batizada ou não, isto é minha fé em Cristo, pois não existe nada que condene aquele pequeno. Dito isto, mesmo que um malfeito físico aconteça com um recém nascido, não é pela criança que lamento, mas pelos vivos que hão de sofrer, pois para a glória de Deus pai todo poderoso jaz a criança nos céus.
 
 - E o batismo de adulto ? Morte e ressurreição em Cristo, após o pecado deve-se morrer e ressuscitar em Cristo, pois foi com todo amor, compaixão e misericórdia que Deus nos deu essa graça do perdão sem ressentimento para nos receber de braços abertos.
 
-- E batizar objetos ? O que tem demais abençoar um objeto para que seja utilizado apenas para atos de bondade e jamais de maldade ? Hora, desejar que jamais um simples caneta abençoada com água santa por exemplo seja usada para assinar contratos espúrios é ruim ? Louvado seja nosso senhor Jesus Cristo, que para apenas o bem seja usada. Ah mas uma outra pessoa pode pegar está caneta e assinar um contrato maldoso, ou até matar uma pessoa com a caneta. Para quem perguntar isso, eu digo, o problema não é da pessoa que desejou bençãos com a caneta, mas do coração da pessoa que fez a maldade, e mais ainda de quem supostamente levou essa hipótese, pois nada de bom existe no coração de quem quer plantar, dúvida, medo e discórdia. E veja bem, a maldade pode estar na mente, mas jamais deve ser tomada em nossos corações de tal forma que plantamos , dúvida, medo e discórdia entre nossos irmãos, acabando com a harmonia do corpo de Cristo. Pois somos todos nós corpo e Sangue de Cristo.
+- E batizar objetos ? Talvez o nome correto não seja batismo, mas benção, indepentede da discussão semântca, o que tem demais abençoar um objeto para que seja utilizado apenas para atos de bondade e jamais de maldade ? Hora, desejar que jamais um simples caneta abençoada com água santa por exemplo seja usada para assinar contratos espúrios é ruim ? Louvado seja nosso senhor Jesus Cristo que para apenas o bem seja usada. Ah mas uma outra pessoa pode pegar está caneta e assinar um contrato maldoso, ou até matar uma pessoa com a caneta. Para quem perguntar isso, eu digo, o problema não é da pessoa que desejou bençãos com a caneta, mas do coração da pessoa que fez a maldade, e mais ainda de quem supostamente levou essa hipótese, pois nada de bom existe no coração de quem quer plantar, dúvida, medo e discórdia. E veja bem, a maldade pode estar na mente, mas jamais deve ser tomada em nossos corações de tal forma que plantamos , dúvida, medo e discórdia entre nossos irmãos, acabando com a harmonia do corpo de Cristo. Pois somos todos nós corpo e Sangue de Cristo.
 
 - O discurso só a fé basta é lindo, e quando é de coração é real. Mas se só a fé basta, precisaria Jesus também ser batizado? precisaria uma pessoa ser batizada ? Este discurso só a fé basta, quando de coração, para servir a Deus e amar ao próximo talvez seja sim suficiente. Mas também se esconde muito a negligência, arrogância de se achar tão bom e íntimo de Deus que não se precisa de ninguém para lhe abençoar, porque afinal existe problema em bençãos em excesso ? Pelo contrário que sejam infinitas as bençãos de Deus, e o desejo de bençãos pelos parentes, amigos, irmãos.
 
@@ -3035,6 +3043,15 @@ Lucas 22
   - Mistérios Luminosos: Momento de Leitura da palavra e pregação do Evangelho, todos fazem silêncio para ouvir a palavra, e principalmente o momento de homilia em que o Padre fala emprestando a sua boca para ao Espirito Santo, para que o Espirito Santo fale através do apóstolo, aqui vemos o candelabro brilhando e trazendo luz em meio as trevas que pode existir dentro do coração e mente de um individuo (ovelha perdida) que assiste a Santa missa. Logo após um ofertório dos presentes procurando representar sua gratidão pelas palavras ditas.
   - Mistérios Dolorosos: momento antes de receber a Eucaristia em que procuramos nos ajoelhar perante Cristo, mortificando nossos pecados na Cruz ao nos arrependermos verdadeiramente, pecados que já devem ter sido confessados antes da missa.
   - Mistérios Gloriosos: Momento de recebimento da Eucaristia, momento em que nos vivificamos(ressuscitamos) em comunhão com Cristo através da Eucaristia.
+
+<!-- TOC --><a name="santa-igreja-católica"></a>
+#### Santa Igreja Católica 
+
+- Ela é Santa porque Cristo é o cabeça e seu Espírito vive na mesma através da Eucaristia,  pois promessas foram feitas sobre isto. Mas existem membros podres em carne na Igreja, e assim como uma unha podre cai para dar espaço a um limpa, assim também será na Santa Igreja Católica.
+
+- E para quem diz que "o Espírito Santo vive em nossos corações e não na Eucaristia" com a intenção de diminuir a importância da Eucaristia, eu porém lhe digo que o Espírito Santo de Deus vive aonde ele quiser, ele entra no seu coração através do seu sim, e se mantém em você através da sua obediência, mas se você recusa o mandamento da Eucaristia já premeditado em Êxodo 12 como algo perpétuo, não é Cristo que rejeita você, mas você quem rejeita a Cristo, rejeitando assim a Árvore da vida.
+
+- Você não abandona o pai por causa dos maus irmãos que traem o evangelho, você não abandona a Eucaristia por causa das unhas podres, mesmo com unhas podres você se mantém fiel ao cabeça que é Cristo presente na Eucaristia. Você não vai a Santa Missa para encontrar ou agradar ninguém, você vai por causa de Jesus Cristo Eucarístico. E se um dia você ficar longe da Eucaristia pois não tenha um sacerdote para celebrar a missa, sempre terá o Santo Rosário de nossa Mãe Nossa Senhora.
 
 <!-- TOC --><a name="santos-e-interseções"></a>
 #### Santos e interseções
@@ -4403,8 +4420,9 @@ Apocalipse 13
 
 18. Eis aqui a sabedoria! Quem tiver inteligência, calcule o número da Fera, porque é número de um homem, e esse número é seiscentos e sessenta e seis.*
 
-- A besta se chama egoísmo/materialismo, reforçado através do Reino Unido/EUA, a besta que já teve como cede Roma, que já teve como cede o Egito, que blasfemou contra a Igreja Católica e defendeu a falsa liberdade.
-- Sobre a outra fera que tinha 2 chifres como um cordeiro e falava como um dragão, na atualidade identifico os 2 chifres como capitalismo e socialismo/comunismo (materializado nos EUA com Republicanos X Democratas - Direta x Esquerda)  que fez todos adorarem a besta materializada com a Estátua da Liberdade. Nenhum país conseguiu comprar ou vender sem usar o dólar depois do golpe aplicado pelos EUA. Os pais fundadores da América glorificam ao homem e a sua invenção de liberdade, derramando sangue, espalhando ganâncias e misérias. Totalmente diferente do Brasil que foi fundado por uma Santa Missa com a missão de espalhar o nome de Jesus.
+- A besta que recebeu poder do dragão foi o Ego da falsa Liberdade e do Materialismo, que gerou o Ego do Protestantismo originado no Reino Unido, que blasfemaram contra Deus, contra a Igreja Católica, contra a Santa virgem Maria, contra os Santos, Contra a Eucaristia, contra as promessas de Cristo. O diabo/dragão é especialista em acusar os outros daquilo que ele é, e a maior acusação dos protestantes contra os católicos é que a Igreja católica é a besta do Apocalipse, "acuse os outros daquilo que você é", o que só confirma como o Ego da Liberdade representada no Protestantismo é a verdadeira besta do Apocalipse. A besta do Apocalipse teve poder sobre os reis da terra, o Ego Liberdade deu espaço para o divórcio nas sociedades ocidentais, começando pelo divórcio adúltero do Rei Henrique VIII, depois deu espaço para o materialismo através da revolução industrial, que corrompeu as almas dos povos fazendo todos se enfeitiçarem com as benesses da Luxúria da modernidade industrial, fez as pessoas deixarem suas terras em cidades do campo aonde produziam seus próprios alimentos e tinham filhos, para migrarem para grandes centros urbanos e passarem a serem escravas de empresários de um sistema capitalista.
+
+- A segunda besta que passou a adorar a primeira besta foi representada pelos EUA, nação filha do Reino Unido e também protestante, tem dois chifres como de cordeiro representando sua Liberdade democrática que se colocou como status de melhor com duas opções: Esquerda x Direita, Republicanos x Democratas, Capitalistas x Socialistas/Comunistas, falava como um dragão sempre na base da ameaça. Fizeram fogo descer do céu com suas guerras que espalharam pelo mundo, fazendo com que todo país aderisse ao materialismo moderno Industrial, e quem se recusasse a negociar ou aderir a essa segunda besta representada pelos EUA era perseguido e morto. Fizeram até uma estátua da primeira besta que é o Ego da Liberdade (Estátua da Liberdade). Essa segunda besta fez com que todos (pequenos e grandes, ricos e pobres, livres e escravos) comprassem e vendessem através do dólar. Tudo isso criado pelo homem. Os pais fundadores da América glorificam ao homem e a sua invenção de liberdade, derramando sangue, espalhando ganâncias e misérias.
 
 - O 666 é para aquele que parece ser a trindade mas não eh, que parece ser enviado de Deus mas não eh, pois a cabeça ao invés de estar para cima como no 999, está para baixo. Aos olhos dos homens, aos olhos da carne, vai parecer o que não eh, mas aos olhos do Espírito/Coração será tão claro como a luz do sol.
 
@@ -4419,6 +4437,7 @@ Cabeça para baixo: A referência à cabeça "para baixo" pode sugerir a invers�
 A distinção espiritual: Em última instância, o versículo convida os crentes a discernir, com sabedoria e entendimento, o verdadeiro do falso. "Aquele que tem entendimento calcule o número da besta" sugere que, embora o engano seja grande e as aparências possam enganar, aqueles que têm o Espírito de Deus e discernimento espiritual serão capazes de identificar a verdade, mesmo quando ela é disfarçada.
 Portanto, essa interpretação que você propõe sugere uma ideia de discernimento espiritual profundo, onde a verdadeira natureza de algo ou alguém só pode ser conhecida através da luz do Espírito, que ilumina o coração e revela a falsidade por trás das aparências.
 "
+
 Apocalipse 14
 
 - A queda do império do mal que gera flagelos e misérias na vida.
@@ -5284,55 +5303,231 @@ https://cruzterrasanta.com.br/historia-de-santo-expedito/122/102/
 <!-- TOC --><a name="te-amarei-senhor"></a>
 ##### Te amarei, senhor
 
-    - Me chamaste para caminhar na vida contigo
-    - Decidi para sempre seguir-te, não voltar atrás 
-    - Me puseste uma brasa no peito e uma flecha na alma
-    - É difícil agora viver sem lembra-me de ti
+  - Me chamaste para caminhar na vida contigo
+  - Decidi para sempre seguir-te, não voltar atrás 
+  - Me puseste uma brasa no peito e uma flecha na alma
+  - É difícil agora viver sem lembra-me de ti
 
-    - Te amarei, Senhor, te amarei, senhor
-    - Eu só encontro a paz e a alegria
-    - Bem perto de ti
+  - Te amarei, Senhor, te amarei, senhor
+  - Eu só encontro a paz e a alegria
+  - Bem perto de ti
 
-    - Eu pensei muitas vezes calar e não dar nem resposta
-    - Eu pensei na fuga esconder-me, ir longe de ti
-    - Mas tua força venceu e ao final eu fiquei seduzido
-    - É difícil viver sem lembra-me ti
+  - Eu pensei muitas vezes calar e não dar nem resposta
+  - Eu pensei na fuga esconder-me, ir longe de ti
+  - Mas tua força venceu e ao final eu fiquei seduzido
+  - É difícil agora viver sem lembra-me ti
 
-    - Te amarei, Senhor, te amarei, senhor
-    - Eu só encontro a paz e a alegria
-    - Bem perto de ti
+  - Te amarei, Senhor, te amarei, senhor
+  - Eu só encontro a paz e a alegria
+  - Bem perto de ti
 
-    - Te amarei, Senhor, te amarei, senhor
-    - Eu só encontro a paz e a alegria
-    - Bem perto de ti
+  - Te amarei, Senhor, te amarei, senhor
+  - Eu só encontro a paz e a alegria
+  - Bem perto de ti
 
-    - Oh, Jesus, não me deixas jamais caminhar solitário
-    - Pois conhece a minha fraqueza e o meu coração
-    - Vem, ensina-me a viver a vida na Tua presença
-    - No amor dos irmãos, na alegria, na paz, na união
+  - Oh, Jesus, não me deixas jamais caminhar solitário
+  - Pois conhece a minha fraqueza e o meu coração
+  - Vem, ensina-me a viver a vida na Tua presença
+  - No amor dos irmãos, na alegria, na paz, na união
 
-    - Te amarei, Senhor, te amarei, senhor
-    - Eu só encontro a paz e a alegria
-    - Bem perto de ti
+  - Te amarei, Senhor, te amarei, senhor
+  - Eu só encontro a paz e a alegria
+  - Bem perto de ti
 
-    - Te amarei, Senhor, te amarei, senhor
-    - Eu só encontro a paz e a alegria
-    - Bem perto de ti
+  - Te amarei, Senhor, te amarei, senhor
+  - Eu só encontro a paz e a alegria
+  - Bem perto de ti
 
-    - Te amarei, Senhor, te amarei, senhor
-    - Eu só encontro a paz e a alegria
-    - Bem perto de ti
+  - Te amarei, Senhor, te amarei, senhor
+  - Eu só encontro a paz e a alegria
+  - Bem perto de ti
 
-    - Te amarei, Senhor, te amarei, senhor
-    - Eu só encontro a paz e a alegria
-    - Bem perto de ti
+  - Te amarei, Senhor, te amarei, senhor
+  - Eu só encontro a paz e a alegria
+  - Bem perto de ti
 
-    - Te amarei, Senhor, te amarei, senhor
+  - Te amarei, Senhor, te amarei, senhor
+
+<!-- TOC --><a name="conheço-um-coração"></a>
+##### Conheço um coração
+
+  - Conheço um coração tão manso, humilde e sereno
+  - Que louva ao Pai por revelar seu nome aos pequenos
+  - Que tem o dom de amar
+  - Que sabe perdoar
+  - Que deu a vida para nos salvar
+
+  - Jesus manda teu Espírito
+  - Para transformar meu coração
+
+  - Jesus manda teu Espírito
+  - Para transformar meu coração
+
+  - As vezes no meu peito, bate um coração de pedra
+  - Magoado, frio, sem vida, aqui dentro ele me aperta
+  - Não quer saber de amar, nem sabe perdoar
+  - Quer tudo e não sabe partilhar
+
+  - Jesus manda teu Espírito
+  - Para transformar meu coração
+
+  - Jesus manda teu Espírito
+  - Para transformar meu coração
+
+  - Lava, purifica e restaura-me de novo
+  - Serás o nosso Deus e nós seremos o teu povo
+  - Derrama sobre nós, a água do amor
+  - O Espírito de Deus nosso Senhor
+
+  - Jesus manda teu Espírito
+  - Para transformar meu coração
+
+  - Jesus manda teu Espírito
+  - Para transformar meu coração
+
+<!-- TOC --><a name="música-romanos-12"></a>
+##### Música: Romanos 12
+
+  - Não posso mais conter em mim
+  - Esse desejo de Ti
+  - Está crescendo mais
+
+  - Não posso mais fingir que não vi
+  - Há um incômodo em mim
+  - Que não me deixa em paz
+
+  - Não posso mais conter em mim
+  - Esse desejo de Ti
+  - Está crescendo mais
+
+  - Não posso mais fingir que não vi
+  - Há um incômodo em mim
+  - Que não me deixa em paz
+
+  - Vem e traz pra fora
+  - Tudo o que há um tempo
+  - Arde em mim
+  - O Amor que eu conheci (hmm)
+
+  - Vem e me transforma
+  - E me impulsiona a transformar
+  - O mundo a partir de mim
+
+  - O Teu Espírito me tira do conforto
+  - E me revela a Tua vontade
+  - Boa, perfeita, agradável
+
+  - A Tua obra em mim será conhecida
+  - A Tua mão que faz nova criatura
+  - Já não sou quem eu era, eu sou
+  - Novo em Ti
+
+  - O primeiro dom, o meu coração
+  - Entrega de amor
+  - Tudo o que sou pela renovação
+  - Do meu interior
+
+  - Primeiro dom, o meu coração
+  - Entrega de amor
+  - Tudo o que sou pela renovação
+  - Do meu interior
+
+  - Primeiro dom, meu coração
+  - Entrega de amor
+  - Tudo o que sou pela renovação
+  - Do meu interior
+
+  - O primeiro dom, o meu coração
+  - Entrega de amor
+  - Tudo o que sou pela renovação
+  - Do meu interior
+
+  - O Teu Espírito me tira do conforto
+  - E me revela a Tua vontade
+  - Boa, perfeita, agradável
+
+  - A Tua obra em mim será conhecida
+  - A Tua mão que faz nova criatura
+  - Já não sou quem eu era, eu sou novo em Ti
+
+  - Novo em Ti
+  - Novo em Ti (novo em Ti)
+  - Novo em Ti
+  - Novo em Ti
+  - Novo em Ti
+  - Novo em Ti
+  - Novo em Ti
+  - Novo em Ti
+  - Novo em Ti
+  - Novo em Ti
+  - Novo em Ti
+  - Novo em Ti
+  - Novo em Ti
+
+  - O Teu espírito me tira do conforto
+  - E me revela a Tua vontade
+  - Boa, perfeita, agradável
+  - A Tua obra em mim será conhecida
+  - A Tua mão que faz nova criatura
+  - Já não sou quem eu era, eu sou novo em Ti
+
+<!-- TOC --><a name="terra-seca"></a>
+##### Terra seca
+
+  - Somente em Ti construirei a minha casa
+  - Somente em Ti colocarei minha esperança
+  - Somente em Ti construirei a minha casa
+  - Somente em Ti colocarei minha esperança
+
+  - Pois só em Ti minha alma achou descanso
+  - Pois só em Ti eu pude respirar
+  - Pois só em Ti minha alma achou descanso
+  - Só em Ti eu pude respirar
+
+  - E o meu coração deseja Te encontrar,
+  - Como a terra seca anseia pela chuva
+  - Vem me saciar
+  - Pois eu descobri
+  - Que aqui é o meu lugar
+
+  - E o meu coração deseja Te encontrar
+  - Como a terra seca anseia pela chuva
+  - Vem me saciar
+  - Pois eu descobri
+  - Que aqui é o meu lugar
+
+  - Somente em Ti construirei a minha casa
+  - Somente em Ti colocarei minha esperança
+  - Somente em Ti construirei a minha casa
+  - Somente em Ti colocarei minha esperança
+
+  - Pois só em Ti minha alma achou descanso
+  - Pois só em Ti eu pude respirar
+  - Pois só em Ti minha alma achou descanso
+  - Só em Ti eu pude respirar
+
+  - E o meu coração deseja Te encontrar,
+  - Como a terra seca anseia pela chuva
+  - Vem me saciar
+  - Pois eu descobri
+  - Que aqui é o meu lugar
+
+  - E o meu coração deseja Te encontrar
+  - Como a terra seca anseia pela chuva
+  - Vem me saciar
+  - Pois eu descobri
+  - Que aqui é o meu lugar
+
+  - E o meu coração deseja Te encontrar
+  - Como a terra seca anseia pela chuva
+  - Vem me saciar
+  - Pois eu descobri
+  - Que aqui é o meu lugar
 
 <!-- TOC --><a name="medicina-natural"></a>
 #### Medicina natural
 
-- Santa Hidelgarda
+- Santa Hidelgarda: Doutora da Igreja principalmente em medicina natural
 
 - Vida: água
 - Hidratação corporal: água
@@ -6278,9 +6473,9 @@ https://gauchazh.clicrbs.com.br/cultura-e-lazer/tv/noticia/2024/06/produtor-de-o
 
 - De toda forma Deus existe além do universo, antes mesmo do tempo, espaço e matéria existir.
 
-- A hipnose considerando a teoria de múltiplos universos pode ser verdade, já que a realidade pode ser o que você acreditar ou quiser, mas o que você quiser também pode ser a vontade do pai, o universo pai da qual tudo se originou inclusive você. Mas da mesma que o pai pode nos hipnotizar com bons pensamentos, o mal pode nos hipnotizar com pensamentos ruim, então você pode tentar salvar um a pessoa tomada por pensamentos ruins absorvendo esses pensamentos(energias) ruins das pessoas, e em troca passar para ela os pensamentos bons, e se você tiver fé para morrer e ressuscitar em Cristo, a oração é um ótimo caminho para isso. A hipnose pode ser vista como um truque charlatão, mas considerando um imenso poder da mente, não seria também uma dádiva de Deus ? E se disserem que não como não converte-la para o bem ? Se a tudo pode o senhor Jesus Cristo nosso senhor Deus.
+- A hipnose considerando a teoria de múltiplos universos pode ser verdade, já que a realidade pode ser o que você acreditar ou quiser, mas o que você quiser também pode ser a vontade do pai, o universo pai da qual tudo se originou inclusive você. Mas da mesma forma que o pai pode nos hipnotizar com bons pensamentos e uma realidade agradável, o mal pode nos hipnotizar com pensamentos ruins, então você pode tentar salvar um a pessoa tomada por pensamentos ruins absorvendo esses pensamentos(energias) ruins das pessoas, e em troca passar para ela os pensamentos bons, e se você tiver fé para morrer e ressuscitar em Cristo, a oração é um ótimo caminho para isso. A hipnose pode ser vista como um truque charlatão, mas considerando um imenso poder da mente, não seria também uma dádiva de Deus ? E se disserem que não como não converte-la para o bem ? Se a tudo pode o senhor Jesus Cristo nosso senhor Deus.
 
-- Deus é semelhante a um máquina, e nós humanos somos seus micro processadores, Deus possui o HD, memória RAM, CPU apartados, de tal forma que um item interage com outro. Quando um item chega ao final da sua vida, devido ao processo do tempo, ele vai ser renovado, pois nada é perdido no espaço e tempo, e sim transformado, Deus não é Deus do descartável, é o do reutilizável, ou da transformação/conversão. Mas para o itens pifados e queimados por desobediência, esses talvez tenham de ser pulverizados para serem criados algo novo do zero a partir das cinzas.
+- Deus é semelhante a um máquina (guardado as devidas propoções de vida), e nós humanos somos seus micro processadores, Deus possui o HD, memória RAM, CPU apartados, de tal forma que um item interage com outro. Quando um item chega ao final da sua vida, devido ao processo do tempo, ele vai ser renovado, pois nada é perdido no espaço e tempo, e sim transformado, Deus não é Deus do descartável, é o do reutilizável, ou da transformação/conversão. Mas para o itens pifados e queimados por desobediência, esses talvez tenham de ser pulverizados para serem criados algo novo do zero a partir das cinzas.
 
 John Michell (1724-1793) - Buracos negros
 https://www.bbc.com/portuguese/articles/cd1d9qj9288o
