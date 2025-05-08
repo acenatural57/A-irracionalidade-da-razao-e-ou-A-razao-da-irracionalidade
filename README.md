@@ -1335,26 +1335,6 @@ João encontrou o dono da loja com seu irmão.
 
 - Qual perspectiva vais olhar? Nessa frase neutra e sem contexto tanto faz se é João que tem irmão, ou o dono da loja. Mas supondo agora um contexto maior, que foi dito que João foi o único filho de uma mulher. E essa mensagem foi passada por várias bocas. Hora, chegará um dia que uma boca dirá com fervor: "mentira! foi dito em um momento que estava João com seu irmão indo a uma loja." Agora pense. O que esse fervor gerou ? Divisão? Medo ? Intriga ? Que emoções e sentimentos isso vai gerar ? Alegria, esperança, paz, gerando Amor ? Ou será, que inicialmente medo, medo de ter caído na mentira de outros, gerando uma falsa sensação de felicidade ao contrariar algo e encher-se de si ao descobrir a verdade que ninguém descobriu ? Pois vigie o que a dúvida gera em teu coração, e que resultados dará no final. Pois as consequências das tuas obras e escolhas podem (não afirmação) te definir quem és tu.
 
-2 Timóteo 3
-
-1. Sabe, porém, isto: que nos últimos dias sobrevirão tempos trabalhosos.
-2. Porque haverá homens amantes de si mesmos, avarentos, presunçosos, soberbos, blasfemos, desobedientes a pais e mães, ingratos, profanos,
-3. Sem afeto natural, irreconciliáveis, caluniadores, incontinentes, cruéis, sem amor para com os bons,
-4. Traidores, obstinados, orgulhosos, mais amigos dos deleites do que amigos de Deus,
-5. Tendo aparência de piedade, mas negando a eficácia dela. Destes afasta-te.
-6. Porque deste número são os que se introduzem pelas casas, e levam cativas mulheres néscias carregadas de pecados, levadas de várias concupiscências;
-7. Que aprendem sempre, e nunca podem chegar ao conhecimento da verdade.
-8. E, como Janes e Jambres resistiram a Moisés, assim também estes resistem à verdade, sendo homens corruptos de entendimento e réprobos quanto à fé.
-9. Não irão, porém, avante; porque a todos será manifesto o seu desvario, como também o foi o daqueles.
-10. Tu, porém, tens seguido a minha doutrina, modo de viver, intenção, fé, longanimidade, amor, paciência,
-11. Perseguições e aflições tais quais me aconteceram em Antioquia, em Icônio, e em Listra; quantas perseguições sofri, e o Senhor de todas me livrou;
-12. E também todos os que piamente querem viver em Cristo Jesus padecerão perseguições.
-13. Mas os homens maus e enganadores irão de mal para pior, enganando e sendo enganados.
-14. Tu, porém, permanece naquilo que aprendeste, e de que foste inteirado, sabendo de quem o tens aprendido,
-15. E que desde a tua meninice sabes as sagradas Escrituras, que podem fazer-te sábio para a salvação, pela fé que há em Cristo Jesus.
-16. Toda a Escritura é divinamente inspirada, e proveitosa para ensinar, para redargüir, para corrigir, para instruir em justiça;
-17. Para que o homem de Deus seja perfeito, e perfeitamente instruído para toda a boa obra.
-
 Vídeo: Além da bíblia, as interpretações
 https://youtu.be/k15GZ6Of0Ho?si=IWR1G02z4yeD0nzT
 
@@ -3122,6 +3102,56 @@ João 17
 22. E eu dei-lhes a glória que a mim me deste, para que sejam um, como nós somos um.
 23. Eu neles, e tu em mim, para que eles sejam perfeitos em unidade, e para que o mundo conheça que tu me enviaste a mim, e que os tens amado a eles como me tens amado a mim.
 
+Mateus 5
+
+43. Tendes ouvido o que foi dito: Amarás o teu próximo e poderás odiar teu inimigo.*
+44. Eu, porém, vos digo: amai vossos inimigos, fazei bem aos que vos odeiam, orai pelos que vos [maltratam e] perseguem.
+45. Deste modo sereis os filhos de vosso Pai do céu, pois ele faz nas­cer o sol tanto sobre os maus como sobre os bons, e faz chover sobre os justos e sobre os injustos.
+46. Se amais somente os que vos amam, que recompensa tereis? Não fazem assim os próprios publicanos?
+47. Se saudais apenas vossos irmãos, que fazeis de extraordinário? Não fazem isso também os pagãos?
+48. Portanto, sede perfeitos, assim como vosso Pai celeste é perfeito.”
+
+1 Pedro 1
+
+15. A exemplo da santidade daquele que vos chamou, sede também vós santos em todas as vossas ações, pois está escrito:
+16. Sede santos, porque eu sou santo (Lv 11,44).
+
+Levítico 11
+
+44. Pois eu sou o Senhor, vosso Deus. Vós vos santificareis e sereis santos, porque eu sou santo. Não vos contaminareis com esses animais que se arrastam sobre a terra,*
+
+Levítico 19
+
+2. Dirás a toda a assembleia de Israel o seguinte: Sede santos, porque eu, o Senhor, vosso Deus, sou santo.
+
+2 Timóteo 3
+
+1. Sabe, porém, isto: que nos últimos dias sobrevirão tempos trabalhosos.
+2. Porque haverá homens amantes de si mesmos, avarentos, presunçosos, soberbos, blasfemos, desobedientes a pais e mães, ingratos, profanos,
+3. Sem afeto natural, irreconciliáveis, caluniadores, incontinentes, cruéis, sem amor para com os bons,
+4. Traidores, obstinados, orgulhosos, mais amigos dos deleites do que amigos de Deus,
+5. Tendo aparência de piedade, mas negando a eficácia dela. Destes afasta-te.
+6. Porque deste número são os que se introduzem pelas casas, e levam cativas mulheres néscias carregadas de pecados, levadas de várias concupiscências;
+7. Que aprendem sempre, e nunca podem chegar ao conhecimento da verdade.
+8. E, como Janes e Jambres resistiram a Moisés, assim também estes resistem à verdade, sendo homens corruptos de entendimento e réprobos quanto à fé.
+9. Não irão, porém, avante; porque a todos será manifesto o seu desvario, como também o foi o daqueles.
+10. Tu, porém, tens seguido a minha doutrina, modo de viver, intenção, fé, longanimidade, amor, paciência,
+11. Perseguições e aflições tais quais me aconteceram em Antioquia, em Icônio, e em Listra; quantas perseguições sofri, e o Senhor de todas me livrou;
+12. E também todos os que piamente querem viver em Cristo Jesus padecerão perseguições.
+13. Mas os homens maus e enganadores irão de mal para pior, enganando e sendo enganados.
+14. Tu, porém, permanece naquilo que aprendeste, e de que foste inteirado, sabendo de quem o tens aprendido,
+15. E que desde a tua meninice sabes as sagradas Escrituras, que podem fazer-te sábio para a salvação, pela fé que há em Cristo Jesus.
+16. Toda a Escritura é divinamente inspirada, e proveitosa para ensinar, para redargüir, para corrigir, para instruir em justiça;
+17. Para que o homem de Deus seja perfeito, e perfeitamente instruído para toda a boa obra.
+
+João 3
+
+4. Nicodemos perguntou-lhe: “Como pode um homem renascer, sendo velho? Porventura pode tornar a entrar no seio de sua mãe e nascer pela segunda vez?”.
+5. Respondeu Jesus: “Em verdade, em verdade te digo: quem não renascer da água e do Espírito não poderá entrar no Reino de Deus.*
+6. O que nasceu da carne é carne, e o que nasceu do Espírito é espírito.
+7. Não te maravilhes de que eu te tenha dito: Necessário vos é nascer de novo.
+8. O vento sopra onde quer; ouves-lhe o ruído, mas não sabes de onde vem, nem para onde vai. Assim acontece com aquele que nasceu do Espírito”.*
+
 - Santidade é um estado de espírito, um estado de graça, não um histórico de vida. Jesus não pediria para nós coisas impossíveis como seguir os passos dele.
 
 - As ações/obras de vida de um santo são consequências da sua santidade por estar em estado de graça, e não a santidade ser consequência das obras dos santos. Santidade não se vive, se sente, não é sobre a moralidade de faça isso deixe de fazer aquilo para ser santo, quando se esta em estado de graça, você nem cogita mais o que se chama pecado. Pois santidade é estar vivo em espírito, e isso é sentido ao Amar a Deus e ao próximo verdadeiramente.
@@ -3132,9 +3162,11 @@ João 17
 
 - Deus/Pai se fez como filho na figura de Jesus, pois como um pai zeloso, nos ensinou dando exemplo a nós seus filhos como nós devemos nos comportar, e dessa forma trilhar o caminho da verdade, para que assim os filhos sejam exemplo do Pai, e verdadeiramente chamados filhos de Deus.
 
-- Jesus/Deus/Pai ao assumir o papel de Cristo, mostra o caminho para a luz, para a purificação da alma, mostra que devemos colocar na Cruz o ego, o orgulho, desejos, apegos da matéria/carne, e o que muitos chamam de amor próprio, pois não foi por amor a si mesmo nem para se exaltar que o mesmo permitiu ser crucificado, mas por Amor a Deus e a nós, e dessa forma nos mostrando o caminho que devemos tomar matando nosso ego para nos curar de nossa podridão (também chamado de pecado) da alma.
+- Jesus/Deus/Pai ao assumir o papel de Cristo, mostra o caminho para a luz, para a purificação da alma, mostra que devemos colocar na Cruz o ego, o orgulho, desejos, apegos da matéria/carne, e o que muitos chamam de amor próprio, pois não foi por amor a si mesmo nem para se exaltar que o mesmo permitiu ser crucificado, mas por Amor a Deus e a nós, e dessa forma nos mostrando o caminho que devemos tomar mortificando nosso ego para nos curar de nossa podridão (também chamado de pecado) da alma e nos tornamos uma nova pessoa ressuscitando, nascendo novamente em espiríto junto a Jesus Cristo através do Espírito Santo de Deus, em nome do Pai, Filho e Espírito Santo.
 
 - Para os irmãos que não seguem as doutrinas católica, a única que coisa peço (não é uma exigência, pois não mando em vós), é que não precisa se submeter a ordem papal, mas que preguem com o coração, não apenas lendo e interpretando, e compreendendo a palavra, nem apenas entendendo o contexto, mas também sentindo de coração, não é com medo de pecar que se deve pregar, ou com medo de perder fiéis, ou com medo de serem taxados de uma igreja católica sem papa. Que mal teria em pregar as mesmas coisas de uma Igreja, que sim já teve (ou tem) membros que erraram no passado, mas que mantém grandes valores de amor de Cristo ? Vigiem vossos corações pois daí virá as vontades de Deus, através de alegria, esperança, paciência gerando o Amor da graça de Deus, pois o que é do medo, tristeza, raiva, ódio provém do maligno.
+
+- Aos que não acreditam na Santidade é porque não acreditam em Cristo nem no que o mesmo pediu: "Sedes Santos porque eu sou Santo". Não acreditam na Santidade do irmão pois invejam os que conseguem ser Santos, pois ao invés de terem fé em Cristo na Santificação assim como vossos irmãos, ao invés de reconhecerem o quanto são miseráveis e pedirem ajuda a Cristo para se Santificar, pois para Deus nada é impossível, ao invés de se Santificarem preferem ficar em seu orgulho condenando a si mesmos no apego ao pecado e do sofrimento.
 
 <!-- TOC --><a name="morte-céu-inferno-purgatório"></a>
 #### Morte, Céu, Inferno, Purgatório
@@ -3515,11 +3547,11 @@ Se você desejar expandir mais sobre algum desses pontos ou discutir outro aspec
 
 João 3
 
-4.Nicodemos perguntou-lhe: “Como pode um homem renascer, sendo velho? Porventura pode tornar a entrar no seio de sua mãe e nascer pela segunda vez?”.
-5.Respondeu Jesus: “Em verdade, em verdade te digo: quem não renascer da água e do Espírito não poderá entrar no Reino de Deus.*
-6.O que nasceu da carne é carne, e o que nasceu do Espírito é espírito.
-7.Não te maravilhes de que eu te tenha dito: Necessário vos é nascer de novo.
-8.O vento sopra onde quer; ouves-lhe o ruído, mas não sabes de onde vem, nem para onde vai. Assim acontece com aquele que nasceu do Espírito”.*
+4. Nicodemos perguntou-lhe: “Como pode um homem renascer, sendo velho? Porventura pode tornar a entrar no seio de sua mãe e nascer pela segunda vez?”.
+5. Respondeu Jesus: “Em verdade, em verdade te digo: quem não renascer da água e do Espírito não poderá entrar no Reino de Deus.*
+6. O que nasceu da carne é carne, e o que nasceu do Espírito é espírito.
+7. Não te maravilhes de que eu te tenha dito: Necessário vos é nascer de novo.
+8. O vento sopra onde quer; ouves-lhe o ruído, mas não sabes de onde vem, nem para onde vai. Assim acontece com aquele que nasceu do Espírito”.*
 
 <!-- TOC --><a name="ejaculação-sexo-vida"></a>
 #### Ejaculação, sexo, vida 
