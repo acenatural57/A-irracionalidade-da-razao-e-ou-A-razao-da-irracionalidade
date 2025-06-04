@@ -37,6 +37,7 @@
       + [Dar a outra face](#dar-a-outra-face)
       + [Perdão e ressentimento ](#perdão-e-ressentimento)
       + [Reconciliação em casos de Guerra e ameaças de morte](#reconciliação-em-casos-de-guerra-e-ameaças-de-morte)
+      + [Sobre dizer não à escravidão e ao ladrão ](#sobre-dizer-não-à-escravidão-e-ao-ladrão)
       + [Inveja](#inveja)
       + [Prudência](#prudência)
       + [Igreja](#igreja)
@@ -435,7 +436,7 @@ Lucas 10
 <!-- TOC --><a name="sobre-estudos"></a>
 #### Sobre estudos
 
-- É preciso ler tudo sem preconceito, mas também com cuidado, prudência e atenção quando se entra na mente desconhecida de um autor que poderia ter em seu coração energias ruins ao escrever. Pode-se tentar entender todas as religiões, seja, cristianismo, Hinduísmo, Satanismo, budismo, judaísmo, islamismo. Pois como pode dizer que algo é bom ou ruim, sem entender e compreender ? Como pode dizer que uma semente verde é trigo ou joio se não deixaste ela amadurecer e maturar em sua mente, sem nem refletir ? Mas depois de comprovada que é joio, e saber discernir o bem do mal, então estarás em maturidade e como adulto espiritual, e não mais como uma criança.
+- É preciso ler tudo sem preconceito, mas também com cuidado, prudência e atenção quando se entra na mente desconhecida de um autor que poderia ter em seu coração energias ruins ao escrever. Pode-se tentar entender todas as religiões, seja, cristianismo, Hinduísmo, Satanismo, orientais como Budismo/Taoísmo, Judaísmo, Islamismo, pois como pode dizer que algo é bom ou ruim, sem entender e compreender ? Como pode dizer que uma semente verde é trigo ou joio se não deixaste ela amadurecer e maturar em sua mente, sem nem refletir ? Mas depois de comprovada que é joio, e saber discernir o bem do mal, então estarás em maturidade e como adulto espiritual, e não mais como uma criança.
 
 - A busca por conhecimento pode ser um mal, e pode se chamar de gnose (ganância pelo saber) quando o mesmo tem qualquer tipo de interesse/objetivo, exceto quando através do AMOR (podendo até morrer) para purificar outras almas e sempre na humildade em Cristo.
 
@@ -818,6 +819,8 @@ Romanos 13
 
 - O Amor não despreza e nem fica no comodismo do fácil, o amor não abandona, o amor luta, o amor discute mesmo que seja uma luta amarga.
 
+- O amor não é aquilo que você deseja/espera, mas sim o que você precisa, se ambas coincidem é uma outra questão.
+
 Vídeo: o Amor é o caminho
 https://youtu.be/Myj1ZCDgcHI?si=O2q_DVGWjM1rIRdD
 
@@ -873,6 +876,8 @@ Mateus 15
 - Muitos se acham virtuosos, mas são apenas soberbos e orgulhosos, muitos se acham espertos, mas é apenas ego. Os mais fortes e sábios param de olhar para seu próprio umbigo e seu próprio sofrimento e passam a ver a dor do próximo.
 
 - O Amor Próprio em sua pura essência egoísta pode ser visto em um Estuprador, homicida, genocida, uma criatura movida a seus próprios desejos, e o contrário do Amor Próprio pode ser visto em Jesus Cristo.
+
+- Se essa vida é tudo que lhe resta, se Cristo não ressuscitou, se não existe vida após a morte, então viva a vida pensando apenas em si mesmo, ame a si mesmo e o seu próprio conforto, minta, seja dissimulado, faça tudo que quiser e desejar pensando na sua própria felicidade e prazeres, dane-se o próximo, o que importa é a sua felicidade e não a do próximo. Afinal, se Cristo não ressuscitou e temos apenas essa vida, muito melhor viver 5 anos intensamente e se deparar com a morte, do que mais de 60 anos com uma vida meia boca sem degustar todos os prazeres e sensações da vida, inclusive os de praticar assaltos e assassinatos.
 
 - A busca pela felicidade é um egoísmo que lhe levará ao fundo do poço, pois no fundo do poço tem a ilusão de luz vinda do reflexo da luz de cima.
 
@@ -1085,7 +1090,7 @@ Apocalipse 3
 
 - Só Deus é bom, pois não existe nada(exceto Deus) que não possa ser desvirtuado para o mal ao se afastar da Luz(Deus) e habitar nas trevas.
 
-- Mas não confundir humildade com paciência, pois paciência tem limite, e até no amor existe a dor amarga da dura verdade fervorosa que tem de ser dita por amor a Deus e ao próximo.
+- Mas não confundir humildade com paciência e mansidão, pois paciência tem limite, e até no amor existe a dor amarga da dura verdade fervorosa que tem de ser dita por amor a Deus e ao próximo, neste momento ame mais a verdade do que qualquer imagem/título de humilde ou manso que homens de carne tem de você.
 
 - Necessário muitas vezes reconhecer nossas limitações e que precisamos de ajuda, precisamos saber pedir antes de tudo a Deus pois é ele quem decide e com ele já temos tudo pois mesmo que encontremos a morte viveremos pois teremos Deus e o resto é passageiro. Depois disso, ter humildade e dexar o orgulho e vergonha de lado e quando necessário pedir ajuda do próximo quando precisarmos, seja em uma dúvida, auxílio material, humano, ou meramente de conselho, e se nos recusarem a nos ajudar, aceitar sem ressentimento o não. Quando pedirmos ajuda, não deve ser para continuarmos precisando do próximo nos tornando folgados e acomodados, mas para que o mesmo nos ajude a caminhar de forma autônoma agora precisando apenas de Deus.
 
@@ -1141,6 +1146,13 @@ Mateus 5
 25. Concilia-te depressa com o teu adversário, enquanto estás no caminho com ele, para que não aconteça que o adversário te entregue ao juiz, e o juiz te entregue ao oficial, e te encerrem na prisão
 
 - Primeiro evoluir para o Espírito e tratar a morte como algo natural que se tiver de acontecer, tudo bem. Segundo tratar com prudência a reconciliação e não no imediatismo de querer o agora de qualquer jeito, se o agora for oportuno tudo bem, mas se não for, avaliar se seu irmão que tem algo contra ti pode acabar condenando a ele mesmo por sua imprudência em reconciliar-se em momento de fúria de seu irmão, necessário prudência na reconciliação para não condenar seu irmão quando o estiver em um estado que fará o mesmo agir em desobediência a Deus. Mas importante não deixar para depois também, mas sim buscar os meios mais sábios.
+
+<!-- TOC --><a name="sobre-dizer-não-à-escravidão-e-ao-ladrão"></a>
+#### Sobre dizer não à escravidão e ao ladrão 
+
+- Se for para continuar vivo como escravo e sendo guiado pelo medo da morte, muito melhor será dizer um não ao ladrão e encontrar a morte, pois assim você terá descanso nos braços de Deus, e o ladrão não terá mais ninguém para escravizar ou roubar. O ladrão aqui pode ser tanto o que lhe em termos de matéria, mas também e principalmente o lhe rouba em termo de alma e paz.
+
+- Se é o medo da morte o seu guia e não a vida, que vida você merece se não a de um pobre e miserável que vende a alma por migalhas ?
 
 <!-- TOC --><a name="inveja"></a>
 #### Inveja
@@ -1233,7 +1245,7 @@ Provérbios 4
 
 - Nessa de provérbios, seria ser prudente não nos andares de forma literal, mas nas coisas do coração.
 
-- Cuidado para não mascarar o medo com a prudência, nem mais mascarar a sua imprudência com a suposta coragem, um equilíbrio e auto reflexão é necessário.
+- Cuidado para não mascarar o medo com a prudência, nem mascarar a sua imprudência com a suposta coragem, um equilíbrio e auto reflexão é necessário.
 
 <!-- TOC --><a name="igreja"></a>
 #### Igreja
@@ -1245,9 +1257,9 @@ Provérbios 4
 <!-- TOC --><a name="religião"></a>
 #### Religião
 
-- Tanto Católicos ou ortodoxos , assim como os Cristãos não apostólicos oficiais, e também religiões além do Cristianismo, como o Islamismo, Judaísmo, Budismo, Hinduísmo, posso dizer que são montanhas que levam aos céus, pois aliviam a alma ao procurar ensinar ao próximo a esvaziar a si mesmos e carregar suas cruzes da vida, mesmo aquelas que não sabem o significado de uma cruz, são montanhas cheias de pedras preciosas, não no sentido material da palavra, mas no sentido de pedras preciosas de Graça, mas de nada adianta as virtudes de todas essas religiões sem o Amor, e nenhuma montanha me enche mais os olhos de graciosidade particularmente do que as virtudes dos Santos e Santas da Igreja Católica, como Padre Pio, São Francisco de Assis, Don Bosco, que em nome do Espírito Santo de Jesus praticaram grandes obras, milagres não só de curas de doentes, mas principalmente da alma, pois se tem uma igreja completa em graciosidade é a igreja católica pois nela existe o Amor, apesar de evidentemente como em todas as outras religiões, também existem membros podres na católica. Muitas outras religiões tem valores que aliviam a alma, mas muitas parecem que lhe faltar o Amor. Então fica a reflexão que não é sobre a existência do mal, do erro, do tropeço, ou busca pela perfeição, algo que por mais que queremos abolir, vai inerentemente existir pois temos o livre arbítrio para sempre escolher o erro, escolher o mal, algo que muitos já fazem sem profundamente compreender que está na maldade pois está longe da luz, longe do Amor. Então não seria sobre ver a maldade, mas sim se consegue encontrar o Amor, não o falso amor enganoso de prazeres e concupiscência da carne, mas aquele que é quase inexplicável, e Jesus foi algo que demonstrou na prática esse profundo amor em toda a sua história, tendo o amor como essência. Se eu pudesse tentar descrever seria o amor algo que transparece Alegria(Amarelo), Esperança(Verde), paz(Azul), confiança(Anil), dor que tudo suporta(violeta), paixão(vermelho), criatividade(laranja), todas coexistente de uma maneira coesa e harmoniosa como a própria luz que se mostra em um espectro visível através de 7 cores. Não existe no amor coisas como tristeza, medo, raiva egoísta, angústias, desconfiança, ódio, estaticidade/limites. Obviamente que ao tentar descrever o Amor e dizer o que não é o mesmo em palavras,  torna tudo algo limitante e carnal a medida que em determinadas definições de sentimento ele parece ser e não ser ao mesmo tempo, e por isso o Amor não dá para explicar em essência, pois a Luz(Amor) é energia e vibração, e é algo que tem de ser sentido.
+- Tanto Católicos ou ortodoxos, assim como os Cristãos não apostólicos oficiais, e também religiões além do Cristianismo, como o Islamismo, Judaísmo, orientais como Budismo/Taoísmo, Hinduísmo, posso dizer que são montanhas que levam aos céus, pois aliviam a alma ao procurar ensinar ao próximo a esvaziar a si mesmos e carregar suas cruzes da vida, mesmo aquelas que não sabem o significado de uma cruz, são montanhas cheias de pedras preciosas, não no sentido material da palavra, mas no sentido de pedras preciosas de Graça, mas de nada adianta as virtudes de todas essas religiões sem o Amor, e nenhuma montanha me enche mais os olhos de graciosidade particularmente do que as virtudes dos Santos e Santas da Igreja Católica, como Padre Pio, São Francisco de Assis, Don Bosco, que em nome do Espírito Santo de Jesus praticaram grandes obras, milagres não só de curas de doentes, mas principalmente da alma, pois se tem uma igreja completa em graciosidade é a igreja católica pois nela existe o Amor, apesar de evidentemente como em todas as outras religiões, também existem membros podres na católica. Muitas outras religiões tem valores que aliviam a alma, mas muitas parecem que lhe faltar o Amor. Então fica a reflexão que não é sobre a existência do mal, do erro, do tropeço, ou busca pela perfeição, algo que por mais que queremos abolir, vai inerentemente existir pois temos o livre arbítrio para sempre escolher o erro, escolher o mal, algo que muitos já fazem sem profundamente compreender que está na maldade pois está longe da luz, longe do Amor. Então não seria sobre ver a maldade, mas sim se consegue encontrar o Amor, não o falso amor enganoso de prazeres e concupiscência da carne, mas aquele que é quase inexplicável, e Jesus foi algo que demonstrou na prática esse profundo amor em toda a sua história, tendo o amor como essência. Se eu pudesse tentar descrever seria o amor algo que transparece Alegria(Amarelo), Esperança(Verde), paz(Azul), confiança(Anil), dor que tudo suporta(violeta), paixão(vermelho), criatividade(laranja), todas coexistente de uma maneira coesa e harmoniosa como a própria luz que se mostra em um espectro visível através de 7 cores. Não existe no amor coisas como tristeza, medo, raiva egoísta, angústias, desconfiança, ódio, estaticidade/limites. Obviamente que ao tentar descrever o Amor e dizer o que não é o mesmo em palavras,  torna tudo algo limitante e carnal a medida que em determinadas definições de sentimento ele parece ser e não ser ao mesmo tempo, e por isso o Amor não dá para explicar em essência, pois a Luz(Amor) é energia e vibração, e é algo que tem de ser sentido.
 
-- Convém lembrar que assim como o Cristianismo vem sendo desvirtuado, a exemplo do que foi feito pelo protestantismo ou outros movimentos de desvirtuação por membros da própria Igreja oficial, pois foram movimentos fundados com base na discórdia ou desconfiança, ou em sentimento de orgulho, arrogância e soberba, falta de humildade, ou falta de lealdade, ou ganância por saber/gnose, ou puramente apegos materialistas, também pode-se dizer que outras denominações religiosas (Judaísmo, Islamismo, Budismo, Hinduísmo) também sofreram desvirtuações das mensagens iniciais de seus primeiros mensageiros, que talvez sim, ou não, tenham sido mensagens autênticas do único Deus criador de tudo e fonte da vida, dependendo da existência ou não do Amor. Mas mesmo assim em alguns desses movimentos desvirtuados já senti o amor presente em alguns de seus membros, já presenciei flores brotarem no deserto escaldante
+- Convém lembrar que assim como o Cristianismo vem sendo desvirtuado, a exemplo do que foi feito pelo protestantismo ou outros movimentos de desvirtuação por membros da própria Igreja oficial, pois foram movimentos fundados com base na discórdia ou desconfiança, ou em sentimento de orgulho, arrogância e soberba, falta de humildade, ou falta de lealdade, ou ganância por saber/gnose, ou puramente apegos materialistas, também pode-se dizer que outras denominações religiosas (Judaísmo, Islamismo, orientais como Budismo/Taoísmo, Hinduísmo) também sofreram desvirtuações das mensagens iniciais de seus primeiros mensageiros, que talvez sim, ou não, tenham sido mensagens autênticas do único Deus criador de tudo e fonte da vida, dependendo da existência ou não do Amor. Mas mesmo assim em alguns desses movimentos desvirtuados já senti o amor presente em alguns de seus membros, já presenciei flores brotarem no deserto escaldante
 
 Mateus 16
 
@@ -1256,7 +1268,7 @@ Mateus 16
 17. Jesus então lhe disse: Feliz és, Simão, filho de Jonas, porque não foi a carne nem o sangue que te revelou isto, mas meu Pai que está nos céus.
 18. E eu te declaro: tu és Pedro, e sobre esta pedra edificarei a minha Igreja as portas do inferno não prevalecerão contra ela.
 
-- Entre todas as religiões que tenham tido em seus primórdios caminhos de luz e alívio da alma, cito aqui Cristianismo Católico, Cristianismo Ortodoxo Apostólico, Cristianismo não Apostólico, Judaísmo, Islamismo, Hinduísmo, Budismo, a única Igreja/religião que tem a concretização de que as portas do inferno não irão prevalecer, é a Igreja Católica, não porque alguns dizem que só ela quem salvou almas durante os séculos, mas porque só ela vai resistir (pela garantia de Cristo) até o fim a tentativa de perversão do inimigo, que já deturpa quase tudo, e como já vem deturpando a maioria das outras denominações religiosas.
+- Entre todas as religiões que tenham tido em seus primórdios caminhos de luz e alívio da alma, cito aqui Cristianismo Católico, Cristianismo Ortodoxo Apostólico, Cristianismo não Apostólico, Judaísmo, Islamismo, Hinduísmo, orientais como Budismo/Taoísmo, a única Igreja/religião que tem a concretização de que as portas do inferno não irão prevalecer, é a Igreja Católica, não porque alguns dizem que só ela quem salvou almas durante os séculos, mas porque só ela vai resistir (pela garantia de Cristo) até o fim a tentativa de perversão do inimigo, que já deturpa quase tudo, e como já vem deturpando a maioria das outras denominações religiosas.
 
 <!-- TOC --><a name="pregação-da-palavra"></a>
 #### Pregação da palavra
@@ -1704,10 +1716,10 @@ João 17
 22. E eu dei-lhes a glória que a mim me deste, para que sejam um, como nós somos um.
 23. Eu neles, e tu em mim, para que eles sejam perfeitos em unidade, e para que o mundo conheça que tu me enviaste a mim, e que os tens amado a eles como me tens amado a mim.
 
-- Deus me fez uma grande revelação hoje
-Quando sua pulsação está acelerada é preciso deixar seu corpo em movimento, para que haja uma justificativa para seu coração estar bombeando tanto sangue.
+- Deus me fez uma grande revelação hoje:
 
-- Descobri isso ao me colocar na posição dos enfermos, de sentir como é ser enfermo, de enfraquecer meu corpo não fazendo atividade física.
+  - Quando sua pulsação está acelerada é preciso deixar seu corpo em movimento, para que haja uma justificativa para seu coração estar bombeando tanto sangue.
+  - Descobri isso ao me colocar na posição dos enfermos, de sentir como é ser enfermo, de enfraquecer meu corpo não fazendo atividade física.
 
 - Deixar o corpo no ritmo do coração.
 
@@ -1730,15 +1742,30 @@ Quando sua pulsação está acelerada é preciso deixar seu corpo em movimento, 
 
 - Cuidado ao não dormir nem se alimentar bem, pois por não dormir não descansaste a mente, por não comer não fortaleceis o corpo, mas o teu coração continuará bombeando na mesma intensidade de sempre, e não terá sintonia com o corpo e mente. Então alimenta teu corpo para teres energia de fazeres exercícios, e deixar o corpo em sintonia com o coração, e os 2 em sintonia irão fazer com que tua mente que tende a dormir fique acordada. 
 
-Descobri isto ao jejuar, não alimentar o corpo, não descansar e continuar fazendo atividades, e nem descansar a mente. Ao final meu coração continuava bombeando, mas meu corpo e mente estavam gastos, o corpo precisava da mente, mas a mente estava com sono e fraca, pois mal havia dormido e voltou a trabalhar e a mente teve medo e não soube resolver por se só, então ordenou ao corpo que praticasse atividades físicas para que entrasse em sintonia com o coração, e os 2 juntos acordassem a mente que tinha sono.
+- Descobri isto ao jejuar, não alimentar o corpo, não descansar e continuar fazendo atividades, e nem descansar a mente. Ao final meu coração continuava bombeando, mas meu corpo e mente estavam gastos, o corpo precisava da mente, mas a mente estava com sono e fraca, pois mal havia dormido e voltou a trabalhar e a mente teve medo e não soube resolver por se só, então ordenou ao corpo que praticasse atividades físicas para que entrasse em sintonia com o coração, e os 2 juntos acordassem a mente que tinha sono.
 
-Treinar e cuidar do corpo não pela competição, ambição ou ganância, seja contra si mesmo ou contra quem quer que seja, nem de pegar mais peso, nem pela estética, mas para manter o corpo saudável, com articulações em dia, fazendo o movimento do corpo com as amplitudes, intensidade e velocidades adequadas, evoluindo sem ambições, ganâncias, ou competição, apenas com a naturalidade e disciplina no processo, e sempre em equilíbrio de corpo, mente e espírito.
+- Treinar e cuidar do corpo não pela competição, ambição ou ganância, seja contra si mesmo ou contra quem quer que seja, nem de pegar mais peso, nem pela estética, mas para manter o corpo saudável, com articulações em dia, fazendo o movimento do corpo com as amplitudes, intensidade e velocidades adequadas, evoluindo sem ambições, ganâncias, ou competição, apenas com a naturalidade e disciplina no processo, e sempre em equilíbrio de corpo, mente e espírito.
 
 - Satanás não sabe o que pensamos exatamente a não ser que verbalizemos seja em palavras ou ações do corpo. Nas nossas cabeças, ele só sabe nos manipular quando externalizamos ou deixamos prevalecer nossa fraqueza na concupiscência (desejos) da carne.
 
-- Para o corpo: trabalho, exercícios e alimentação;
-- Para a mente: leitura e discernimento do evangelho;
-- Para o coração: oração, confissão e eucaristia;
+- Alimente-se da seguinte forma:
+
+  - Para o corpo: 
+    - trabalho para acordar a mente; 
+    - exercícios físicos para acordar além da mente também o coração e suas articulações, e dessa forma também manter a disciplina e constância;
+    - alimentação nutritiva para o próprio corpo coração e mente, pois o intestino é tido como um segundo cérebro. Cuidado com o exagero de: "não vou mais comer isso ou aquilo para manter o corpo saudável ou puro", isto adoece a mente e coração, mas também não se acomode em comer qualquer coisa de forma desenfreada;
+
+  - Para a mente: 
+    - meditação do evangelho ou de literaturas semelhantes a "Castelo Interior" de "Santa Teresa D'Ávila", ou "Demônios" de "Fiódor Dostoiévski";
+    - trabalho pois dignifica o homem e ocupa sua mente;
+    - Jejum, como evitar filosofias ou ideias do mundo que vão contra Cristo, se não conseguir evitá-las apenes as observe e veja as consequências desastrosas de seus resultados;
+
+  - Para o coração: 
+    - oração; 
+    - evangelho; 
+    - confissão;
+    - eucaristia;
+    - e logo depois a caridade, pois uma fé sem obras é uma fé morta e um coração morto;
 
 <!-- TOC --><a name="deus-sem-você-é-deus"></a>
 #### Deus sem você é Deus
@@ -2933,6 +2960,19 @@ Exôdo 20
 
 - A preocupação com uma adoração a um objeto é genuína e deve ser observada sobre 2 perspectivas. A primeira a ser avaliada é  quem suspostamente adora o objeto ou não, se ao se deparar com a possível destruição do mesmo se debruça em preocupações, ao invés de se manter na paciência e aceitação de que não importa, pois caso a importância for um teto, se constrói outro, se a importância for a lembrança que o objeto trás, se constrói outro objeto. A segunda perspectiva é: para quem destrói o objeto, o que lhe move a fazer aquilo, é o Ódio ? É a inveja, é o medo ? Ou uma legítima tentativa de abrir o olho da outra mente? Veja, o problema não é o objeto, mas acreditar que o objeto por si só tem o poder de algo, quando na verdade o poder está na sua fé em Deus de transformar algo em poder.
 
+I Samuel 8
+
+1. Samuel, tendo envelhecido, estabeleceu seus filhos como juízes de Israel.
+2. Seu filho primogênito chamava-se Joel e o segundo Abias; e julgavam em Bersabeia.
+3. Os filhos de Samuel, porém, não seguiram as suas pisadas, mas deixaram-se arrastar pela cobiça, recebendo presentes e violando o direito.
+4. Todos os anciãos de Israel vieram em grupo ter com Samuel em Ramá,
+5. e disseram-lhe: “Estás velho e teus filhos não seguem as tuas pisadas. Dá-nos um rei que nos governe, como o têm todas as nações”.
+6. Estas palavras: “Dá-nos um rei que nos governe” desagradaram a Samuel, que se pôs em oração diante do Senhor.
+7. O Senhor disse-lhe: “Ouve a voz do povo em tudo o que te disseram. Não é a ti que eles rejeitam, mas a mim, pois já não querem que eu reine sobre eles.
+8. Fazem contigo como sempre o têm feito comigo, desde o dia em que os tirei do Egito até o presente: abandonam-me para servir a deuses estranhos.
+
+- Deus sabendo que o ser humano é carente e desejava ser grato pela vida, se fez carne para ser adorado pelo homem, não porque Deus precisava do homem, mas porque o homem em suas carências precisava ver a face de Deus, precisava ter uma lembrança em suas memórias do rosto de Deus, daquele que tudo lhe deu, e Deus bondoso e misericordioso deu ao homem o que ele pedia e precisava, deu um rei, ele mesmo que se fez carne, para ser adorado para todo o sempre pela carência do homem, que ao invés de suprir em Deus sua carência, acaba adorando outros Deuses.
+
 <!-- TOC --><a name="o-louco-amor-de-deus"></a>
 #### O louco amor de Deus
 
@@ -2967,12 +3007,17 @@ Salmo 138
 
 - E o batismo de adulto ? Morte e ressurreição em Cristo, após o pecado deve-se morrer e ressuscitar em Cristo, pois foi com todo amor, compaixão e misericórdia que Deus nos deu essa graça do perdão sem ressentimento para nos receber de braços abertos.
 
-- E batizar objetos ? Talvez o nome correto não seja batismo, mas benção, indepentede da discussão semântca, o que tem demais abençoar um objeto para que seja utilizado apenas para atos de bondade e jamais de maldade ? Hora, desejar que jamais um simples caneta abençoada com água santa por exemplo seja usada para assinar contratos espúrios é ruim ? Louvado seja nosso senhor Jesus Cristo que para apenas o bem seja usada. Ah mas uma outra pessoa pode pegar está caneta e assinar um contrato maldoso, ou até matar uma pessoa com a caneta. Para quem perguntar isso, eu digo, o problema não é da pessoa que desejou bençãos com a caneta, mas do coração da pessoa que fez a maldade, e mais ainda de quem supostamente levou essa hipótese, pois nada de bom existe no coração de quem quer plantar, dúvida, medo e discórdia. E veja bem, a maldade pode estar na mente, mas jamais deve ser tomada em nossos corações de tal forma que plantamos , dúvida, medo e discórdia entre nossos irmãos, acabando com a harmonia do corpo de Cristo. Pois somos todos nós corpo e Sangue de Cristo.
+- E batizar objetos ? Talvez o nome correto não seja batismo, mas benção, independente da discussão semântica, o que tem demais abençoar um objeto para que seja utilizado apenas para atos de bondade e jamais de maldade ? Hora, desejar que jamais um simples caneta abençoada com água santa por exemplo seja usada para assinar contratos espúrios é ruim ? Louvado seja nosso senhor Jesus Cristo que para apenas o bem seja usada. Ah mas uma outra pessoa pode pegar está caneta e assinar um contrato maldoso, ou até matar uma pessoa com a caneta. Para quem perguntar isso, eu digo, o problema não é da pessoa que desejou bençãos com a caneta, mas do coração da pessoa que fez a maldade, e mais ainda de quem supostamente levou essa hipótese, pois nada de bom existe no coração de quem quer plantar, dúvida, medo e discórdia. E veja bem, a maldade pode estar na mente, mas jamais deve ser tomada em nossos corações de tal forma que plantamos , dúvida, medo e discórdia entre nossos irmãos, acabando com a harmonia do corpo de Cristo. Pois somos todos nós corpo e Sangue de Cristo.
 
 - O discurso só a fé basta é lindo, e quando é de coração é real. Mas se só a fé basta, precisaria Jesus também ser batizado? precisaria uma pessoa ser batizada ? Este discurso só a fé basta, quando de coração, para servir a Deus e amar ao próximo talvez seja sim suficiente. Mas também se esconde muito a negligência, arrogância de se achar tão bom e íntimo de Deus que não se precisa de ninguém para lhe abençoar, porque afinal existe problema em bençãos em excesso ? Pelo contrário que sejam infinitas as bençãos de Deus, e o desejo de bençãos pelos parentes, amigos, irmãos.
 
 <!-- TOC --><a name="confissão"></a>
 #### Confissão 
+
+Tiago 5
+
+15. A oração da fé salvará o enfermo e o Senhor o restabelecerá. Se ele cometeu pecados, lhe serão perdoados.
+16. Confessai os vossos pecados uns aos outros, e orai uns pelos outros para serdes curados. A oração do justo tem grande eficácia.
 
 - A confissão é um ato em que você percebe o quanto é podre por dentro. Você tem de fazer uma auto avaliação profunda de si, e perceber o quanto é egoísta, e do quanto seus atos de pecado não fazem mal apenas a si mesmo, como também ao próximo. Mas antes do confessionário, é necessário um preparo para essa auto avaliação, por isso a importância da catequese, aonde se aprende os valores Cristãos, os pecados capitais, toda uma preparação para ir para o confessionário se purificar e logo depois se ajoelhar e ficar de pé diante da presença de Deus durante a Eucaristia.
 
@@ -2986,6 +3031,10 @@ Salmo 138
     - 2- Continuam indo no confessionário e repetidamente cometendo os mesmos pecados, de tal forma que não perdoam mais a si mesmos.
 
   Em ambas o inimigo fica feliz quando você acredite não ter mais salvação, mas Deus sempre lhe perdoa e lhe aceita quando o arrependimento é de verdade.
+
+- Cuidado com a demagogia do pecador que diz que é Cristão, mas não se arrepende, se justifica ou ainda diz que vai mudar mas continua pecando e sem um verdadeiro arrependimento ou vontade de mudança, melhor seria ir direto para o caminho do perverso e sofrer as consequências e só então assim aprender a verdadeiramente se arrepender e dar valor a Deus.
+
+- Cuidado também com o discurso de que "Deus lhe ama do jeito que você é", ele lhe ama realmente, mas ele chama você para mudança, conversão, mortificação do seu EU/EGO, não fique retardando a mudança com esses discurso de "ele me ama do jeito que eu sou e está tudo bem", pois quanto mais a doença se alastra mas dolorosa é a cura.
 
 https://padrepauloricardo.org/episodios/o-que-e-necessario-para-bem-se-confessar
 
@@ -3010,6 +3059,20 @@ Lucas 22
 19. Tomou em seguida o pão e depois de ter dado graças, partiu-o e deu-lho, dizendo: Isto é o meu corpo, que é dado por vós fazei isto em memória de mim.
 20. Do mesmo modo tomou também o cálice, depois de cear, dizendo: Este cálice é a Nova Aliança em meu sangue, que é derramado por vós…
 
+João 6
+
+48. Eu sou o pão da vida.
+49. Vossos pais, no deserto, comeram o maná e morreram.
+50. Este é o pão que desceu do céu, para que não morra todo aquele que dele comer.
+51. Eu sou o pão vivo que desceu do céu. Quem comer deste pão viverá eternamente. E o pão, que eu hei de dar, é a minha carne para a salvação do mundo”.
+52. A essas palavras, os judeus começaram a discutir, dizendo: “Como pode este homem dar-nos de comer a sua carne?”.
+53. Então, Jesus lhes disse: “Em verdade, em verdade vos digo: se não comerdes a carne do Filho do Homem, e não beberdes o seu sangue, não tereis a vida em vós mesmos.
+54. Quem come a minha carne e bebe o meu sangue tem a vida eterna; e eu o ressuscitarei no último dia.
+55. Pois a minha carne é verdadeiramente uma comida e o meu sangue, verdadeiramente uma bebida.
+56. Quem come a minha carne e bebe o meu sangue permanece em mim e eu nele.
+57. Assim como o Pai que me enviou vive, e eu vivo pelo Pai, assim também aquele que comer a minha carne viverá por mim.
+58. Este é o pão que desceu do céu. Não como o maná que vossos pais comeram e morreram. Quem come deste pão viverá eternamente”.
+
 - Receber a Eucaristia em pecado, com coração amargurado, rancoroso, triste, com medo, não com Deus necessariamente, mas para com um irmão, pode sim fazer um mal superficial/carnal a você mesmo, acontecer algo em uma situação que você não gostaria que acontecesse, e isso logo após você sair da Igreja, mas isso é para que você seja confrontado a si purificar, pois o Espirito Santo de Deus não aceita habitar em algo impuro, ele vai expulsar essas impurezas, pois ele ( o puro Amor) não aceita habitar junto ao medo, tristeza, raiva, angústias e rancores, invejas, a tudo que não dá origem ao Amor, ele não aceita dividir o trono que é seu coração com essa impurezas.
 
 - O pão e vinho deixa de ser apenas um pão e vinho e passa a ser corpo e sangue de Cristo (transubstanciação) se você tiver fé, nem que seja mínima e quase imperceptível, assim como um grão de mostarda. Mas se você faz desdém em seu orgulho do corpo e do vinho, talvez de fato não seja feito o que se chama transubstanciação, mas ainda também existirá a fé do sacerdote que administra a Eucaristia, desde que o mesmo sacerdote não guarde amarguras, soberbas, ou desdenhe da Santa Igreja Católica, ou das Igrejas Apostólicas, estando assim o sacerdote em comunhão com a sucessão Apostólica.
@@ -3017,12 +3080,16 @@ Lucas 22
 <!-- TOC --><a name="santa-missa"></a>
 #### Santa Missa
 
-- A explicação da Santa Missa é um mistério, talvez algo individual para cada um, mas para mim é caminhada com Cristo ressuscitando a sua história vida ao se fazer Carne, tudo isso em poucas horas. E aqui cabe a mim a dizer os detalhes do que vejo:
+- A explicação da Santa Missa é um mistério, talvez algo individual para cada um, mas para mim é caminhada com Cristo ressuscitando a sua história de vida ao se fazer Carne, tudo isso em poucas horas. E aqui cabe a mim a dizer os detalhes do que vejo:
 
-  - Mistérios Gozosos: Momento de entrada do Padre junto aos demais membros do Altar, sendo recebidos com os cânticos de entrada, muitas vezes de celebração, aqui vejo um sentimento/emoção de esperança pela vinda de Cristo presente em sua sucessão apostólica através do Padre.
-  - Mistérios Luminosos: Momento de Leitura da palavra e pregação do Evangelho, todos fazem silêncio para ouvir a palavra, e principalmente o momento de homilia em que o Padre fala emprestando a sua boca para ao Espirito Santo, para que o Espirito Santo fale através do apóstolo, aqui vemos o candelabro brilhando e trazendo luz em meio as trevas que pode existir dentro do coração e mente de um individuo (ovelha perdida) que assiste a Santa missa. Logo após um ofertório dos presentes procurando representar sua gratidão pelas palavras ditas.
-  - Mistérios Dolorosos: momento antes de receber a Eucaristia em que procuramos nos ajoelhar perante Cristo, mortificando nossos pecados na Cruz ao nos arrependermos verdadeiramente, pecados que já devem ter sido confessados antes da missa.
-  - Mistérios Gloriosos: Momento de recebimento da Eucaristia, momento em que nos vivificamos(ressuscitamos) em comunhão com Cristo através da Eucaristia.
+  - Mistérios Gozosos: Momento de entrada do Padre junto aos demais membros do Altar, sendo recebidos com os cânticos de entrada, muitas vezes de celebração, lembrando muito o "Hosana ", aqui vejo um sentimento/emoção de esperança pela vinda de Cristo presente em sua sucessão apostólica através do Padre, pela vinda do Salvador.
+  - Mistérios Luminosos: Momento de Leitura da palavra e pregação do Evangelho, todos fazem silêncio para ouvir a palavra, e principalmente o momento de homilia em que o Padre fala emprestando a sua boca para ao Espirito Santo, para que o Espirito Santo fale através do apóstolo, aqui vemos o candelabro brilhando e trazendo luz em meio as trevas que pode existir dentro do coração e mente de um individuo (ovelha perdida) que assiste a Santa missa. Logo após um ofertório dos presentes procurando representar sua gratidão pelas palavras ditas (homilia/pregação), esse momento do ofertório oferecemos algo a Deus, seja dinheiro, alimento, mas principalmente o dízimo do coração em devoção e lealdade ao mesmo.
+  - Mistérios Dolorosos: Momento da consagração da Eucaristia, da quebra do pão, da Crucificação de Cristo, administrado pelo sacerdote, momento em que os fiéis procuram se ajoelhar perante Cristo, reconhecendo suas misérias sem se justificar, se arrependendo verdadeiramente pedindo perdão pelos seus pecados (pecados que já devem ter sido confessados antes da missa) e dessa forma mortificando o seu EU na Cruz para receber Cristo dento de si.
+  - Mistérios Gloriosos: Momento de recebimento da Eucaristia, momento em que nos vivificamos (ressuscitamos) em comunhão com Cristo através da Eucaristia, em que a sua alma, dependendo do indivíduo que recebe, finalmente se casa ou se junta a Cristo recebendo assim o Espírito Santo em seu coração. Isto é algo difícil de explicar e é apenas sentido, talvez a melhor explicação para o que acontece possa ser lida pela obra de "Santa Teresa D'Ávila" em "Castelos Interiores".
+
+- A missa tem tantas coisas que nem dá para descrever, você tem os momentos de celebração, luz, dor/mortificação, e ressurreição/glorificação. O que você enxerga da missa revela muito mais sobre o estágio da sua alma do que da missa em si.
+
+- Se você não vive todos os estágios de uma Santa missa, você já pode ter passado por mais de 200, mas nunca saiu da primeira.
 
 <!-- TOC --><a name="santa-igreja-católica"></a>
 #### Santa Igreja Católica 
@@ -3061,7 +3128,7 @@ Resposta ChatGPT:
 
 - Não podemos afirmar de verdade ou não, a vontade de Deus em fazer de seus servos mais fieis peças chaves ou não em obras de intercessão, pois só o senhor Deus é a verdade ao que se mostrou através de Jesus Cristo. Mas em relatos de fé descritos por terceiros, acredito que Deus como todo poderoso pode tudo, inclusive dar poder para que fiéis em vida possam ter honrarias maiores no céu. Mas acredito também, que vai depender da vontade do fiel após a sua morte continuar servindo a Deus, ou decidir descansar.
 
-- Mas Deus não precisa de ajuda, ele sozinho já faz tudo ? Não ouvistes Jesus Cristo, Deus nosso senhor ? Que Em nome do pai(Cabeça), filho(corpo), Espírito Santo(coração), poderíamos interpretar todos como membros do corpo de Deus ? Não seria por ventura um anjo membro do corpo de Deus, sendo uma célula membro ordeira que obedece a cabeça ? E como membro de um corpo de Deus , não seria também Deus , pois está a serviço dele ?
+- "Mas Deus não precisa de ajuda, ele sozinho já faz tudo ?" Não ouvistes Jesus Cristo, Deus nosso senhor ? Que Em nome do pai(Cabeça), filho(corpo), Espírito Santo(coração), poderíamos interpretar todos como membros do corpo de Deus ? Não seria por ventura um anjo membro do corpo de Deus, sendo uma célula membro ordeira que obedece a cabeça ? E como membro de um corpo de Deus , não seria também Deus, pois está a serviço dele ?
 
 - Tratar um anjo como corpo de Deus talvez seja errôneo, mas sendo ou não, as ações de anjos existem, tratar ele como parte de Deus só mostra ele como onipresente, não tratá-lo como membro do corpo de Deus seria tratá-lo como um servo externo a serviço do senhor.
 
@@ -3162,7 +3229,7 @@ João 3
 
 - Deus/Pai se fez como filho na figura de Jesus, pois como um pai zeloso, nos ensinou dando exemplo a nós seus filhos como nós devemos nos comportar, e dessa forma trilhar o caminho da verdade, para que assim os filhos sejam exemplo do Pai, e verdadeiramente chamados filhos de Deus.
 
-- Jesus/Deus/Pai ao assumir o papel de Cristo, mostra o caminho para a luz, para a purificação da alma, mostra que devemos colocar na Cruz o ego, o orgulho, desejos, apegos da matéria/carne, e o que muitos chamam de amor próprio, pois não foi por amor a si mesmo nem para se exaltar que o mesmo permitiu ser crucificado, mas por Amor a Deus e a nós, e dessa forma nos mostrando o caminho que devemos tomar mortificando nosso ego para nos curar de nossa podridão (também chamado de pecado) da alma e nos tornamos uma nova pessoa ressuscitando, nascendo novamente em espiríto junto a Jesus Cristo através do Espírito Santo de Deus, em nome do Pai, Filho e Espírito Santo.
+- Jesus/Deus/Pai ao assumir o papel de Cristo, mostra o caminho para a luz, para a purificação da alma, mostra que devemos colocar na Cruz o ego, o orgulho, desejos, apegos da matéria/carne, e o que muitos chamam de amor próprio, pois não foi por amor a si mesmo nem para se exaltar que o mesmo permitiu ser crucificado, mas por Amor a Deus e a nós, e dessa forma nos mostrando o caminho que devemos tomar mortificando nosso ego para nos curar de nossa podridão (também chamado de pecado) da alma e nos tornamos uma nova pessoa ressuscitando, nascendo novamente em espírito junto a Jesus Cristo através do Espírito Santo de Deus, em nome do Pai, Filho e Espírito Santo.
 
 - Para os irmãos que não seguem as doutrinas católica, a única que coisa peço (não é uma exigência, pois não mando em vós), é que não precisa se submeter a ordem papal, mas que preguem com o coração, não apenas lendo e interpretando, e compreendendo a palavra, nem apenas entendendo o contexto, mas também sentindo de coração, não é com medo de pecar que se deve pregar, ou com medo de perder fiéis, ou com medo de serem taxados de uma igreja católica sem papa. Que mal teria em pregar as mesmas coisas de uma Igreja, que sim já teve (ou tem) membros que erraram no passado, mas que mantém grandes valores de amor de Cristo ? Vigiem vossos corações pois daí virá as vontades de Deus, através de alegria, esperança, paciência gerando o Amor da graça de Deus, pois o que é do medo, tristeza, raiva, ódio provém do maligno.
 
@@ -3197,23 +3264,50 @@ Lucas 17
 
 - Já dito que a consciência e coração permanecem após a morte física, agora vem o grande teste pessoal de cada um. Como vocês dormem? como sonham ? Que preocupações possuem ? Conseguem passar tempos sozinhos com a própria consciência sem distrações? ou precisam a todo momento, ouvir, músicas, fazer uma atividade, ocupar a mente, mas nunca meditar? pois teriam coisas muito mal resolvidas com a consciência e coração, coisas egoístas que ficam a todo momento querendo justificar que estavam certos. Se isso acontece saiba que na morte física, o seu espírito transcende através da consciência e coração, e para uma alma/espírito com a consciência e coração sujo, não vai conseguir se elevar e se desprender das noções materialistas, de espaço, tempo e matéria.
 
+Mateus 20
+
+1. Com efeito, o Reino dos Céus é semelhante a um pai de família que saiu ao romper da manhã, a fim de contratar operários para sua vinha.
+2. Ajustou com eles um denário por dia e enviou-os para sua vinha.
+3. Cerca da terceira hora, saiu ainda e viu alguns que estavam na praça sem fazer nada.*
+4. Disse-lhes ele: ‘Ide também vós para minha vinha e vos darei o justo salário’.
+5. Eles foram. À sexta hora saiu de novo e igualmente pela nona hora, e fez o mesmo.
+6. Finalmente, pela undécima hora, encontrou ainda outros na praça e perguntou-lhes: ‘Por que estais todo o dia sem fazer nada?’
+7. Eles responderam: ‘É porque ninguém nos contratou’. Disse-lhes ele, então: – Ide vós também para minha vinha.
+8. Ao cair da tarde, o senhor da vinha disse a seu feitor: ‘Chama os operários e paga-lhes, começando pelos últimos até os primeiros’.
+9. Vieram aqueles da undécima hora e receberam cada qual um denário.
+10. Chegando por sua vez os primeiros, julgavam que haviam de receber mais. Mas só receberam cada qual um denário.
+11. Ao receberem, murmuravam contra o pai de família, dizendo:
+12. ‘Os últimos só trabalharam uma hora... e deste-lhes tanto como a nós, que suportamos o peso do dia e do calor’.
+13. O senhor, porém, observou a um deles: ‘Meu amigo, não te faço injustiça. Não contrataste comigo um denário?
+14. Toma o que é teu e vai-te. Eu quero dar a este último tanto quanto a ti.
+15. Ou não me é permitido fazer dos meus bens o que me apraz? Porventura vês com maus olhos que eu seja bom?’.
+16. Assim, pois, os últimos serão os primeiros e os primeiros serão os últimos. [Muitos serão os chamados, mas poucos os escolhidos.]”*
+
+- Uma criança pura de coração ao olhar está parábola não verá problemas, mas um adulto que tem a si mesmo por sábio e esperto achará injusto o Senhor pois o seu coração ama ao mundo e não os tesouros do céu, a sua mente suja apodrece o coração e apenas alimenta o estômago.
+
+- O reino dos céus pertence as crianças, se quiser saber como é o céu pergunte a uma criança. Um adulto que não olha para uma criança com vontade de voltar a ser criança com todas as suas leseiras, brincadeiras infantis puras de coração e sem maldade, e muitas vezes com toda a ingenuidade, o adulto que não deseja isto não entrará no reino dos céus, um adulto que olha para uma criança se achando superior, mais sábio e maduro que uma criança, não entrará no reino dos céus, pois se o mesmo adulto tem repulsa das coisas puras de uma criança menosprezando-a como infantis, também terá rejeição as coisas dos céus. Do que vale ter todo o conhecimento das malícias e misérias do mundo se você perder a sua alma ? Não entrará no reino dos céus os que vivem na desconfiança, que tem olhar de malícia, de negatividade, pois o reino dos céus pertence aos ingênuos e puros de coração, aos que confiam plenamente e com humildade de escutar, aos que não se deixam levar pelo medo, mas sim pela fé, confiança e esperança em Deus, sendo guiados pela vida e não pelo medo da morte ou da perda. Pois como um adulto que tem repulsa e é impaciente com as leseiras de uma criança pura haveria de suportar o reino dos céus ? Um adulto que tem discernimento do bem e do mal ao ver uma criança deve desejar estar no lugar da criança, mas também deve reconhecer o seu papel de servo da criança, servindo com um amor que não apenas faz o que a criança deseja e pede, brincando junto com a mesma sem ser de maneira forçada, mas também diz um não para a criança quando a mesma precisa.
+
+- Mas também não entrará no reino dos céus aquelas crianças, sejam adultas ou pequenas, que não sabem receber um não e são desobedientes, orgulhosas, teimosas, avarentas, fogem de seus deveres no cuidado com o próximo e se refugiam em seu egoísmo sem saber servir ao próximo, pois o trabalho dignifica o homem, e tem de ser feito não por obrigação, mas sim por amor, mesmo que seja árduo e amargo.
+
+- Encontrar o céu é se casar com Cristo, a sua alma é a esposa de Cristo.
+
 - Inferno ou Purgatório, não dá para afirmar se é um local exatamente, mas com certeza um estado mental e do coração para uma alma no momento da sua morte.
 
-- E para quem não se elevar pois ainda estava sujo, para esse estado de sujeira, se divide em inferno e purgatório. O purgatório é um estado da alma, que pode ter 99% de luz e 1% de mancha de sujeira, mas ainda assim poderá escolher limpar a sujeira, ou se sujar todo. Como também pode ser 1% luz, ou 99% sujo, mas ainda pode escolher, entre limpar os 99% da sujeira, e aumentar a luz, ou completar os 100% da sujeira.
+- E para quem não se elevar ao céus pois ainda estava sujo, para esse estado de sujeira, se divide em inferno e purgatório. O purgatório é um estado da alma, que pode ter 99% de luz e 1% de mancha de sujeira, mas ainda assim poderá escolher limpar a sujeira, ou se sujar todo. Como também pode ser 1% luz, ou 99% sujo, mas ainda pode escolher, entre limpar os 99% da sujeira, e aumentar a luz, ou completar os 100% da sujeira.
 
 - O purgatório, é um estado aonde a alma poderá sofrer tanto quanto no inferno, dependendo dos apegos materialistas que teve em vida, mas existem luzes a servirem de portais para aquela alma se libertar, mas irão precisar superar seus medos profundos não superados em vida, os apegos terrenos, os pecados capitais que ainda perduraria. Uma alma no purgatório não morre em vida física com pecado mortal, mas também não existe garantias de saída do labirinto que é o purgatório, pois ela tem de escolher verdadeiramente amar a Deus e consequentemente ao próximo. 
 
 - O inferno é um estado de completa ausência de Deus(Luz), é para quem conscientemente escolheu o mal, é para quem conscientemente tendo noção das consequências do mal que fazia ao próximo continuou sem arrependimento verdadeiro, veja que é uma questão de consciência, se você rouba e não tem noção do mal que fez ao próximo, seria no máximo um purgatório. Mas para quem tem o prazer, o desejo, que faz por maldade conscientemente, e morre fisicamente neste estado, é alguém que já estava totalmente morto por dentro, pois estava com a alma ainda negra e manchada de pecados mortais (conscientemente fazendo o que não devia), que por escolha ou talvez falta de oportunidade (ausência de um guia de luz) não se mortificou nos pecados para Ressuscitar em Cristo ainda em vida física (veja como a morte aqui tem um sentido diferente). Para ainda em vida física purificar a alma que está em pecados mortais, é preciso um confessionário e um arrependimento verdadeiro.
 
- - Uma alma que vai para o inferno é uma alma sem luz, sem esperança, em que passará a ter os seus medos mais sombrios e profundos lhe atormentando no lugar de morte eterna, e se você não se lembrar, fique tranquilo que existirá outros espíritos das trevas (demônios) para lhe lembrar e sugar(devorar) o restante de energia(vida) espiritual que restar na sua alma, eles sugam através do medo, tristezas e raivas, ansiedades (medo em um nível maior), que os mesmos irão sentir ou até provocar em sua alma, por isso a necessidade de aceitar a morte em paz, para que ao morrer tenha colhido e guardado na mente e principalmente coração as coisas de Deus (humildade, alegria, esperança, paz, penitência/dor, as bases do Amor de Deus), e que ao serem provados pelo fogo, não serão devorados.
+- Uma alma que vai para o inferno é uma alma sem luz, sem esperança, em que passará a ter os seus medos mais sombrios e profundos lhe atormentando no lugar de morte eterna, e se você não se lembrar, fique tranquilo que existirá outros espíritos das trevas (demônios) para lhe lembrar e sugar(devorar) o restante de energia(vida) espiritual que restar na sua alma, eles sugam através do medo, tristezas e raivas, ansiedades (medo em um nível maior), que os mesmos irão sentir ou até provocar em sua alma, por isso a necessidade de aceitar a morte em paz, para que ao morrer tenha colhido e guardado na mente e principalmente coração as coisas de Deus (humildade, alegria, esperança, paz, penitência/dor, as bases do Amor de Deus), e que ao serem provados pelo fogo, não serão devorados.
 
-- O maior problema em morrer com o peso na consciência e não conseguir se elevar, é que vai ter outros espíritos para lhe fazer companhia, alguns deles vão ser como você almas penadas, outros são Espíritos malignos antigos, que vão lhe devorar, lhe sugar o resto de energia Espiritual que você tem, e isso independe do seu estado de inferno ou purgatório, eles vão lhe sugar lhe atormentando com palavras, zombarias, provocação, lhe conhecem tão bem, até mais do que você mesmo (isso para quem nunca meditou), você terá medo, e ele sobrevive sugando sua energia de medo, você terá tristeza e ele sobrevive sugando essa tristeza, você terá raiva e ele vai adorar, você vai xingá-lo e ele irá dizer: "sou mesmo", e quanto mais raiva você tiver, mais vai ser sugado, você não vai conseguir calar a boca dele, você não pode conseguir toca-lo pois espírito são imateriais, e para quem acha que palavras machucam, não suportar provocação e já se tomam de raiva e angústias, vocês são um prato gordo e cheio para serem devorados.
+- O maior problema em morrer com o peso na consciência e não conseguir se elevar, é que vai ter outros espíritos para lhe fazer companhia, alguns deles vão ser como você almas penadas, outros são Espíritos malignos antigos, que vão lhe devorar, lhe sugar o resto de energia Espiritual que você tem, e isso independe do seu estado de inferno ou purgatório, no purgatório talvez só não tenha tantos demônios constantemente pela presença dos anjos que afugentam os mesmos. Esses espíritos das trevas vão lhe sugar lhe atormentando com palavras, zombarias, provocação, lhe conhecem tão bem, até mais do que você mesmo (isso para quem nunca meditou), você terá medo, e ele sobrevive sugando sua energia de medo, você terá tristeza e ele sobrevive sugando essa tristeza, você terá raiva e ele vai adorar, você vai xingá-lo e ele irá dizer: "sou mesmo", e quanto mais raiva você tiver, mais vai ser sugado, você não vai conseguir calar a boca dele, você não pode conseguir toca-lo pois espírito são imateriais, e para quem acha que palavras machucam, não suportar provocação e já se tomam de raiva e angústias, vocês são um prato gordo e cheio para serem devorados.
 
 - Um ateu dificilmente vai conseguir morrer em paz, pois o que é um ateu se não um profundo ódio soberbo à algo que não compreende e acha injusto e ilógico, vendo muitos dos seus medos e temores acontecerem, nem Einstein se dizia ateu, mas acreditava em algo imensamente superior que não compreendia e não conseguia explicar, compreensivo da parte dele considerando que pouco se dedicou a isso e não teve tanta fé, e que talvez as circunstâncias da vida tenham lhe levado a pastores que só apascentavam a si mesmos. Se um ateu vai para inferno não posso afirmar, provavelmente a ignorância de consequências dos atos, descrença no incompreensível junto a boas intenções não tão egoístas lhe levem ao estado de purgatório, mas sem a certeza que o mesmo saia desse labirinto.
 
 - É uma ilusão grande também, achar que purgatório é sinônimo de algum tipo de 'paz' ou 'salvação' mediante uma penitência pessoal. A negligência e arrogância em dizer: "tudo bem ir pro purgatório pois pelo menos não vou estar no inferno" com profunda presunção, preguiça, comodismo ou arrogância de achar que vai sair de lá com absoluta certeza não é uma linha de pensamento de luz, mas sim da ausência da luz, cuidado, se você conscientemente faz o que sabe que não devia conhecendo a Deus de coração, e mesmo assim decidem amar mais aos prazeres egoístas do mundo que atormentam ao próximo, por mais que o próximo não vale uma moeda e supostamente você só estaria dando o troco, prefere esses tipos de prazeres do que Amar a Deus e carregar sua cruz, e fazem essa escolha sem arrependimento nenhum, pois deposita sua fé na segunda chance e não em Deus, aqui você está conscientemente escolhendo trilhar um caminho de auto condenação pela negligência, preguiça, arrogância ou até orgulho, mesmo que seja uma condenação eterna ao purgatório mediante sua própria escolha, e com certeza está mais perto de escolher o que se chama inferno (ausência de Deus) do que do céu, e para ti, antes que o tal dia do senhor chegue, é bom um confessionário verdadeiro, pois nunca se sabe o dia de amanhã.
 
-- O purgatório não é fruto da misericórdia divina, pois não existe nada de bom no purgatório, pois Deus não está lá, o purgatório é fruto do pecado, pois é a escolha da auto condenação da alma em um estado de sujeira morno, nem podre como o inferno, nem limpo como nos céus, não existe garantia de saída do purgatório, pois depende sempre da escolha do indivíduo. A misericórdia Divina é Deus estar sempre de braços abertos para o filho que verdadeiramente ama a Deus incondicionalmente, o filho que sabe se mortificar em seu pecado, se arrependendo e dizendo não a si mesmo (ego/orgulho/desejos) por Amor maior ao Pai. Isto é tão verdade, que no dia que o homem não mais escolher seu ego/pecado não existirá mais purgatório nem inferno, mas ainda continuará existindo um Deus zeloso, misericordioso e cheio de Amor. Pois para um animal que não seja o homem, Deus também sempre continuou sendo zeloso e misericordioso, pois um animal não escolhe o pecado pois não teve lei, consciência, egoísmo, discernimento para quebra de laço com o senhor dos Senhores.
+- O purgatório é fruto da misericórdia divina tanto quanto é fruto do pecado, pois não existe nada de bom no purgatório, pois Deus não está lá, pois é a escolha da auto condenação da alma em um estado de sujeira morno, nem podre como o inferno, nem limpo como nos céus, não existe garantia de saída do purgatório, pois depende sempre da escolha do indivíduo de amar verdadeiramente a Deus acima de tudo e confiar nele como uma criança, deixando o medo e os apegos de lado. A misericórdia Divina é Deus estar sempre de braços abertos para o filho, mas é necessário da parte do filho um aprendizado de amar verdadeiramente e incondicionalmente a Deus sobre todas as coisas, o filho que sabe se mortificar em seu pecado, se arrependendo e dizendo não a si mesmo (ego/orgulho/desejos) por Amor maior ao Pai. Isto é tão verdade, que no dia que o homem não mais escolher seu ego/pecado não existirá mais purgatório nem inferno, mas ainda continuará existindo um Deus zeloso, misericordioso e cheio de Amor. Pois para um animal que não seja o homem, Deus também sempre continuou sendo zeloso e misericordioso, pois um animal não escolhe o pecado pois não teve lei, consciência, egoísmo, discernimento para quebra de laço com o senhor dos Senhores.
 
 - Podemos resumir entre a vida(céu) e a morte(pecado), mas a morte seria a total(inferno) e o quase totalmente morto(purgatório).
 
@@ -3222,7 +3316,7 @@ https://www.vaticannews.va/pt/igreja/news/2018-04/papa-francisco-teologia-infern
 <!-- TOC --><a name="seria-possível-uma-alma-sair-do-inferno-para-o-purgatório-"></a>
 #### Seria possível uma alma sair do inferno para o purgatório ?
 
-- Com exceção do todo poderoso Senhor Jesus Cristo (Deus), consideraria impossível, pois o inferno é uma escolha/opção do livre arbitrio e por isso o inferno sempre vai existir, pois o inferno é para quem diz não a Deus(Luz) conscientemente em vida. Os motivos para alguém escolher o inferno e permanecer lá podem ser vários, para os espíritos de sabedoria e conhecimento das trevas como demônios e Satanás, o orgulho (falta de humildade) é um dos motivos pois eles não gostam de serem humilhados (algo necessário para a purificação), mas tem outros motivos como o medo, a desesperança, a preguiça/comodismo pois satanás e os demônios se sentem confortáveis aonde estão (praticando o pecado), já para as almas atormentadas é a prisão mental(consciência) e do coração no momento da morte que os próprios demônios usam para atormentar e manipular as almas com uma consciência cheia de culpa, de desesperança, sem saber para onde ir, e com verdades tão negras que de fato a vergonha, a culpa, orgulho, a falta de perseverança em penitências fazem com que seja impossível sair de lá, pois se já não existe garantias de sair do purgatório mesmo com uma esperança pequena, imagine para quem morre em uma estado de completa desesperança, culpa, ódio, orgulho, entre outras coisas negras ?
+- Com exceção do todo poderoso Senhor Jesus Cristo (Deus), consideraria impossível, pois o inferno é uma escolha/opção do livre arbítrio e por isso o inferno sempre vai existir, pois o inferno é para quem diz não a Deus(Luz) conscientemente em vida. Os motivos para alguém escolher o inferno e permanecer lá podem ser vários, para os espíritos de sabedoria e conhecimento das trevas como demônios e Satanás, o orgulho (falta de humildade) é um dos motivos pois eles não gostam de serem humilhados (algo necessário para a purificação), mas tem outros motivos como o medo, a desesperança, a preguiça/comodismo pois satanás e os demônios se sentem confortáveis aonde estão (praticando o pecado), já para as almas atormentadas é a prisão mental(consciência) e do coração no momento da morte que os próprios demônios usam para atormentar e manipular as almas com uma consciência cheia de culpa, de desesperança, sem saber para onde ir, e com verdades tão negras que de fato a vergonha, a culpa, orgulho, a falta de perseverança em penitências fazem com que seja impossível sair de lá, pois se já não existe garantias de sair do purgatório mesmo com uma esperança pequena, imagine para quem morre em uma estado de completa desesperança, culpa, ódio, orgulho, entre outras coisas negras ?
 
 <!-- TOC --><a name="mas-deus-é-misericordioso-e-todo-poderoso-ele-pode-nos-salvar"></a>
 #### Mas Deus é misericordioso e todo poderoso, ele pode nos salvar?
@@ -4292,7 +4386,7 @@ Isaías 29
 5. A multidão de teus inimigos será como a poeira fina; a multidão de teus soldados será como a palha, que voa, pois, de repente,
 6. serás visitada pelo Senhor dos exércitos com forte trovão, tremor de terra e estrondos, tempestade, furacão e chamas de fogo devorador.
 
-- Visão superficial: Nessa parte, as nações que almejam Israel podem chegar a obtê-las fisicamente, mas o vazio existencial de achar que existe algo nesse mundo bom sem Deus fará com que se percam, então Deus lhes converterá, não na força física, mas nós corações perdidos(cegos) em si mesmos e seus próprios desejos. Derrubando toda a Ganância, soberba, Irá, inveja, Luxúria através da dor.
+- Visão superficial: Nessa parte, as nações que almejam Israel podem chegar a obtê-las fisicamente, mas o vazio existencial de achar que existe algo nesse mundo bom sem Deus fará com que se percam, então Deus lhes converterá, não de forma forçada, mas tocando nos corações perdidos(cegos) em si mesmos e em seus próprios desejos, derrubando toda a Ganância, soberba, Irá, inveja, Luxúria , seja de forma compassiva ou através da dor, mas em ambas haverá choro.
 
 - Visão Espiritual: talvez Ariel não seja Jerusalém fisicamente, talvez seja o coração(Jerusalém )de Israel, o coração dos homens, dominado pelos Espíritos ruins dos pecados capitais.
 
@@ -4539,7 +4633,13 @@ https://youtu.be/5gEnEwrywi8?si=UJtThi7J3hNBzs1D
 16. Quando for dado o sinal, à voz do arcanjo e ao som da trombeta de Deus, o mesmo Senhor descerá do céu e os que morreram em Cristo ressurgirão primeiro.*
 17. Depois nós, os vivos, os que estamos ainda na terra, seremos arrebatados juntamente com eles sobre nuvens ao encontro do Senhor nos ares, e assim estaremos para sempre com o Senhor.
 
-- O arrebatados serão os mortos físicos para julgamento, pois não estavam vivos em Cristo espiritualmente, pois enquanto estavam vivos fisicamente, espiritualmente estavam mortos em Cristo e vivos no pecado. Os que permanecerem vivos fisicamente são os que já haviam morrido(mortificação do pecado) e ressuscitados espiritualmente em Cristo ainda na vida física.
+- O arrebatados serão os mortos físicos para julgamento, pois não estavam vivos em Cristo espiritualmente, pois enquanto estavam vivos fisicamente, espiritualmente estavam mortos em Cristo e vivos no pecado. Os que permanecerem vivos fisicamente são os que já haviam morrido (mortificação do pecado) e ressuscitados espiritualmente em Cristo ainda na vida física.
+
+- Todos passam pela morte, os que morrem fisicamente mas por dentro tem Cristo como senhor ressuscitarão ao céus com ele. Os que continuarem vivos irão encontrar a morte física depois de fazerem sua missão, nem que seja com uma cruz.
+
+- Arrebatados aos céus em seu devido tempo serão todos que creem em Cristo, pois todos são Espírito, se serão em carne também só Deus sabe, mas o extraordinário é Deus e ele também passou pela morte, nós somos apenas ordinários.
+
+- Muitos esperam o arrebatamento no extraordinário sem passar pela morte, mas muitas vezes é no ordinário do comum, no ordinário do martírio.
 
 <!-- TOC --><a name="conversa-jesus-e-o-diabo"></a>
 #### Conversa Jesus e o Diabo
@@ -4685,7 +4785,6 @@ Zacarias 13
 - Buda:
 
     - Pelas poucas leituras que vi foi um homem comum, não Deus, mas um homem que procurou entender as razões do sofrimento, que entendeu que a busca pela felicidade leva ao sofrimento, pois levará ao apego e medo de perdê-la querendo eternizar ela. Mas talvez seja incompleto, mas tem sua validez mesmo que incompleto.
-
 
 - O filho perdido:
 
@@ -5745,11 +5844,13 @@ O modo CMYK é utilizado para trabalhos gráficos destinados a mídia impressa c
 
 - A ganância pelo conhecimento é uma feitiçaria psicológica tecnicamente, as palavras, semânticas como bruxaria, feitiçaria, tecnologia, ciência, é tudo a mesma coisa, uma pura técnica de transe usada por seres excepcionalmente inteligentes(anjos caídos) para aprisionar os múltiplos universos(pessoas) existentes, tão reais e irreais ao mesmo tempo, real pois a imaginação existe e por existir já é real. A imaginação já é própria noção de espaço, tempo e matéria. Dependendo da fé e crença e autorização do Eterno, literalmente se consegue mover montanhas, tremer o chão, gerar terremotos, chuvas, trovões, bastando apenas se esvaziar, se desprender das noções de espaço, tempo, e matéria, e matar seu ego, desejos egoístas e avarentos, que os desejos se tornam reais e a luz do paraíso se torna totalmente alcançável. A outra maneira de conseguir tamanho poder sobre a própria realidade é pela magia negra da persuasão, do convencimento, tentando deturpar as consciências das pessoas(universos) criadas por Deus, já no início do Éden, a realidade é moldada a partir do egoísmo e ganância pelo conhecimento, mas sempre existirá a escolha do indivíduo de acreditar.
 
-- A teoria de buracos negros nada mais é do que uma imensa obra de engenharia social pervertendo múltiplos multiversos existentes (pessoas) que são a nossa consciência, tentando convencer que a escuridão do abismo vencem até a luz. A NASA é uma empresa governamental dos EUA, um país comandado pelo próprio Satanás representado e adorado pela Estátua da Liberdade. Sua engrenagem social é muito ampla e muitas vezes a ganância por conhecimento já coloca em transe a todos.
+- A teoria de buracos negros nada mais é do que uma imensa obra de engenharia social pervertendo múltiplos multiversos existentes (pessoas) que são a nossa consciência, tentando convencer que a escuridão do abismo vencem até a luz. A NASA é uma empresa governamental dos EUA, um país representado e adorado pela Estátua da Liberdade, que consciente ou inconscientemente é comandado pelo próprio Satanás, podendo assim significar que talvez as pessoas não tenham necessariamente total consciência dos caminhos que trilham e pelo que exatamente estão sendo guiados e aonde irão parar. Sua engrenagem social é muito ampla e muitas vezes a ganância por conhecimento já coloca em transe a todos.
 
 - Um buraco negro que não mais se alimenta absorvendo matéria, está fadado ao tempo a deixar de existir, pois aos poucos perde sua grandeza pela emissão da radiação.
 
-- Buracos negros são reflexos de almas em trevas que não emitem luz, e vivem de sugar as almas aleias(ovelhas/astros). Buracos negros são astros que apesar de existirem estão mortos, pois não apenas não emitem mais a luz, mas também a rejeita, apesar de estar cercado pela luz.
+- Buracos negros são reflexos de almas em trevas que não emitem luz, e vivem de sugar as almas alheias(ovelhas/astros). Buracos negros são astros que apesar de existirem estão mortos, pois não apenas não emitem mais a luz, mas também a rejeita, apesar de estar cercado pela luz.
+
+- Se algo positivo pode vim da existência de um buraco negro é que o mesmo são os olhos do universo pois ao absorverem a luz, o mesmo captura conhecimento dos registros do universo transportados pela luz.
 
 - A luz pode ser o que ela quiser, é tanto que pode se comportar como onda ou partícula.
 
@@ -6275,7 +6376,7 @@ Esses aspectos fazem de Enoque uma figura complexa, refletindo a possibilidade d
 25:6. Então eles se regozijarão e estarão alegres; entrarão no lugar santo e a fragrância penetrará seus ossos; e eles viverão uma larga vida, tal e como a que seus antepassados viveram. Em seus dias não os tocará nenhum sofrimento nem praga nem tortura nem calamidade.
 25:7. Então benzi ao Deus da Glória, ao Rei Eterno, porque tinha preparado tais coisas para os humanos, para os justos. Estas coisas Ele as criou e prometeu as dar-lhe.
 
-- As montanhas talvez pode-se interpretar como as diferentes interpretações da fé em Deus, como cristianismo, islamismo, judaísmo, talvez até budismo, hinduísmo. Sendo o Cristianismo a sétima e mais bela. Qualquer religião que pregar que devemos nos esvaziar, carregar nossas cruzes, carregar nos dores, amar ao próximo e reconhecer o primeiro Amor e autoridade máxima que é Deus.
+- As montanhas talvez pode-se interpretar como as diferentes interpretações da fé em Deus, como Cristianismo, Islamismo, Judaísmo, talvez até orientais como Budismo/Taoísmo, Hinduísmo. Sendo o Cristianismo a sétima e mais bela. Qualquer religião que pregar que devemos nos esvaziar, carregar nossas cruzes, carregar nos dores, amar ao próximo e reconhecer o primeiro Amor e autoridade máxima que é Deus.
 
 Resposta ChatGPT:
 "
@@ -6372,7 +6473,7 @@ Vi em meu sonho crescer a este touro branco até chegar a ser um grande touro br
 89:12
 O bezerro branco, que tinha sido engendrado pelo touro branco, engendrou um javali negro e um carneiro branco. O javali engendrou muitos javalis e o carneiro engendrou doze ovelhas.
 
-- Aqui são as 12 ovelhas são os 12 filhos de Abraão.
+- Aqui são as 12 ovelhas são os 12 filhos de Jacó.
 
 89:27
 Continuei olhando até que todos os lobos que foram perseguindo a este rebanho, pereceram inundados e afogados e as águas os cobriram.
@@ -6458,7 +6559,7 @@ Vi na visão como os corvos voavam sobre estes cordeiros e agarravam a um deles 
 90:29
 Vi quando o Senhor das ovelhas trouxe uma nova casa, maior e alta que a primeira e Ele a pôs no sítio da primeira que tinha sido desarmada. E todas suas colunas eram novas e seus adornos eram novos e maiores que os da primeira, a casa velha que se levou. Todas as ovelhas estavam dentro.
 
-- Aqui, a nova casa é a reforma da Igreja, agora mais vívida, esplendendo amor. Pode-se talvez falar da Igreja Católica nos primeiros anos antes de se corromper, ou de qualquer reforma mais vívida em qualquer religião para exprimir, compaixão até para os inimigos, e tratando os prazeres do mundo (até o amor de uma mãe para o filho) como algo temporário, e apenas o amor de Deus como o eterno. As religiões reformas podem ser até da Judaica, do Islamismo, apesar de em ambas em certos lugar precisar de melhorias. Acredito que os ciclos se repetem em todas, e talvez se amplie até para budismo, hinduísmo, com todos esses ciclos de pastores ruins, tentativas de cordeiros de abrir os olhos das ovelhas, etc.
+- Aqui, a nova casa é a reforma da Igreja, agora mais vívida, esplendendo amor. Pode-se talvez falar da Igreja Católica nos primeiros anos antes de se corromper, ou de qualquer reforma mais vívida em qualquer religião para exprimir, compaixão até para os inimigos, e tratando os prazeres do mundo (até o amor de uma mãe para o filho) como algo temporário, e apenas o amor de Deus como o eterno. As religiões reformas podem ser até da Judaica, do Islamismo, apesar de em ambas em certos lugar precisar de melhorias. Acredito que os ciclos se repetem em todas, e talvez se amplie até para orientais como Budismo/Taoísmo, hinduísmo, com todos esses ciclos de pastores ruins, tentativas de cordeiros de abrir os olhos das ovelhas, etc.
 
 90:37
 Vi que um touro branco nasceu e seus chifres eram grandes e todas as bestas do campo e todas as aves do céu lhe temiam e lhe suplicavam a toda hora.
@@ -6929,6 +7030,8 @@ URL: https://youtu.be/lqwY6dV3Mxw?si=VTjBjhdfJMV9aY7L
 - O medo não é bom. O medo irá lhe afastar dos perigos, por isso irá parecer tentador mantê-lo, pois em tese irá lhe trazer a sobrevivência. Mas manter o medo irá lhe cegar e impedir também as decisões corretas. É necessário enxergar o perigo, evitá-lo se possível, mas não temê-lo caso o enfrente, aceitar o seu destino pois estás em Cristo.
 
 - O medo da morte poderá inclusive fazer com que você tire a vida de uma pessoa. O medo de sofrer pode fazer com que você faça o outro sofrer.
+
+- Muitas vezes encontramos o destino que mais nos amedronta pelo caminho que tomamos para evitá-los. Não tem como fugir do mundo.
 
 <!-- TOC --><a name="anotações-extras-das-emoções"></a>
 #### Anotações extras das emoções
