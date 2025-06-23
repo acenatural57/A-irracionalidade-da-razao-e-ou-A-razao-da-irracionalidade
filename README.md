@@ -132,6 +132,7 @@
       + [Confissão ](#confissão)
       + [Purificação](#purificação)
       + [Eucaristia / Comunhão ](#eucaristia-comunhão)
+      + [Sacramentos](#sacramentos)
       + [Santa Missa](#santa-missa)
       + [Santa Igreja Católica ](#santa-igreja-católica)
       + [Santos e interseções](#santos-e-interseções)
@@ -143,6 +144,7 @@
       + [Possessão/Habitação](#possessãohabitação)
       + [Magia negra](#magia-negra)
       + [Pecado](#pecado)
+      + [Pecado original](#pecado-original)
       + [Pecados Mortais](#pecados-mortais)
       + [Outras doutrinas](#outras-doutrinas)
       + [Esperança](#esperança)
@@ -220,7 +222,7 @@
       + [Brasil Império D. Pedro x Barão de Mauá](#brasil-império-d-pedro-x-barão-de-mauá)
       + [Dúvidas sobre Dom Pedro I e II](#dúvidas-sobre-dom-pedro-i-e-ii)
       + [Transferência internacional de ouro](#transferência-internacional-de-ouro)
-      + [Devedores Juros](#devedores-juros)
+      + [Devedores de Juros](#devedores-de-juros)
       + [Fraude Econômica Legalizada](#fraude-econômica-legalizada)
       + [Virgem Maria](#virgem-maria)
       + [Santa Gema Galgani](#santa-gema-galgani)
@@ -1391,7 +1393,7 @@ https://youtu.be/k15GZ6Of0Ho?si=IWR1G02z4yeD0nzT
 
 - Existe também as roupas que podem se considerar vulgares, em que as roupas e seu uso ao serem vistas de forma isoladas nem teriam problemas, é tanto que entre seres maduros espiritualmente, a roupa e quem a usa por mais vulgar que seja não passa de pó, mas para os não evoluídos elas por debaixo dos panos (profundezas do coração) escondem a auto condenação da alma (devido aos apegos da Luxúria), como também a condenação ou tentação de condenar outras almas ao fazerem as mesmas se desvirtuaram do Espírito e se apegarem a matéria e prazeres, superficialidades da carne/matéria. 
 
-- Uma importante observação, maturidade Espiritual deve ser sempre em Cristo, gerando Amor a Deus e ao próximo, com compaixão e compreensão, pois existe também uma evolução Espiritual mediana, em que se desapegado de alguns fatores como Luxúria mas profundamente se perde no orgulho e Ego.
+- Uma importante observação, maturidade Espiritual deve ser sempre em Cristo, gerando Amor a Deus e ao próximo, com compaixão e compreensão, pois existe também uma evolução Espiritual mediana, em que se está desapegado de alguns fatores como Luxúria mas profundamente se perde no orgulho e Ego.
 
 <!-- TOC --><a name="desigualdade"></a>
 #### Desigualdade
@@ -1580,9 +1582,11 @@ https://gauchazh.clicrbs.com.br/comportamento/noticia/2024/11/deus-existe-no-cer
 
 1 Coríntios 1
 
-27. Mas Deus escolheu as coisas loucas deste mundo para confundir as sábias; e Deus escolheu as coisas fracas deste mundo para confundir as fortes;
-28. E Deus escolheu as coisas vis deste mundo, e as desprezíveis, e as que não são, para aniquilar as que são;
-29. Para que nenhuma carne se glorie perante ele.
+27. O que é estulto no mundo, Deus o escolheu para confundir os sábios; e o que é fraco no mundo, Deus o escolheu para confundir os fortes;
+28. e o que é vil e desprezível no mundo, Deus o escolheu, como também aquelas coisas que nada são, para destruir as que são.
+29. Assim, nenhuma criatura se vangloriará diante de Deus.
+30. É por sua graça que estais em Jesus Cristo, que, da parte de Deus, se tornou para nós sabedoria, justiça, santificação e redenção,
+31. para que, como está escrito: quem se gloria, glorie-se no Senhor (Jr 9,23).*
 
 1 Coríntios 3
 
@@ -1590,7 +1594,7 @@ https://gauchazh.clicrbs.com.br/comportamento/noticia/2024/11/deus-existe-no-cer
 
 - Não existem limites para o poder de Deus. A bíblia não descreve nem 10% de seu poder, e nem de sua vontade. A bíblia só trás a mensagem principal, que Deus é principalmente Deus do coração, e não apenas da sabedoria, se você der espaço para a soberba achando que está com a verdade, ele fará com que sejas um cego. Aquele que se tem por sábio, faça-se louco para ser sábio. Por isso digo e repito, não é pela lógica, razão, compreensão que se lê a bíblia, mas pelo coração.
 
-- Não existe limites do amor e poder de Deus. Mas é certo certas crenças, como as Espíritas, ou Astrologia fazem com que as pessoas acabem não estando em comunhão com Cristo na rotinas de vida. Na Espírita por exemplo, pois passam a praticar um apego excessivo aos mortos de tal forma que acreditam que um certo parente reencarnou em um boi, vaca, bode, etc, ou geram um falta de compaixão com o próximo que um homem que nasceu enfermo está pagando pelos pecados de vidas passadas. Ou na astrologia para para dizer padrões comportamentais. Em verdade seja dita, tudo pode ser real se assim foi da vontade do senhor, mas o apego à essas crenças, como verdades maior do que o mandamento de Amar a Deus sobre todas as coisa, e de amar ao próximo, torna elas algo na prática algo desvirtuado, por mais que TALVEZ Deus tenha feito algo do tipo em sua louca, engenhosa e muitas vezes incompreensíveis criações.
+- Não existe limites do amor e poder de Deus. Mas é certo que certas crenças, como as Espíritas ou Astrologia, que fazem com que as pessoas acabem não estando em comunhão com Cristo na rotinas de vida. Na Espírita por exemplo, pois passam a praticar um apego excessivo aos mortos de tal forma que acreditam que um certo parente reencarnou em um boi, vaca, bode, etc, ou geram um falta de compaixão com o próximo que um homem que nasceu enfermo está pagando pelos pecados de vidas passadas. Ou na astrologia para para dizer padrões comportamentais. Em verdade seja dita, tudo pode ser real se assim foi da vontade do senhor, mas o apego à essas crenças, como verdades maior do que o mandamento de Amar a Deus sobre todas as coisa, e de amar ao próximo, torna elas algo na prática algo desvirtuado, por mais que TALVEZ Deus tenha feito algo do tipo em sua louca, engenhosa e muitas vezes incompreensíveis criações.
 
 <!-- TOC --><a name="fé"></a>
 #### Fé
@@ -1815,12 +1819,14 @@ Reflexão: não julgais alguém por beber e comer em comemoração, mas sim quan
 
 - Igualmente o EXCESSO de preocupações com trabalho, e com rotinas esportivas como academia ou qualquer outra pode se tornar algo que era benéfico em maléfico, não se deve largar os bons hábitos, como trabalho e esportes, mas não se deve ficar angustiadamente preocupado ou viciado nos mesmos.
 
-- Talvez ainda sejamos crianças, apenas trocamos a chupeta por outro vício/dependência, e qual seria exatamente é essa dependência? Basta observar a si mesmo e ver a angústia ou ansiedade tomar conta quando você entra em processo de abstinência. A cura dessas angústias talvez seja uma confissão de coisas mal resolvidas que você tenta negar para si mas não consegue negar para seu coração, e que procura refúgio e alívio nos vícios, a confissão e oração ajuda na cura, assim  como penitência/jejum, e variação de atividades durante o dia-dia.
+- Talvez ainda sejamos crianças, apenas trocamos a chupeta por outro vício/dependência, e qual seria exatamente é essa dependência? Basta observar a si mesmo e ver a angústia ou ansiedade tomar conta quando você entra em processo de abstinência. A cura dessas angústias talvez seja uma confissão de coisas mal resolvidas que você tenta negar para si mas não consegue negar para seu coração, e que procura refúgio e alívio nos vícios, a confissão e oração ajuda na cura, assim  como penitência/jejum, e variação de atividades durante o dia-dia, mas principalmente a Eucaristia.
 
 <!-- TOC --><a name="castidade-masturbação-pornografia-drogas-bebidas-vícios-gula-dinheiro-influência-e-poder"></a>
 #### Castidade, Masturbação, Pornografia, Drogas, Bebidas, Vícios, Gula, dinheiro, influência e poder
 
-- Para quem vive neste mundo, os desejos que parecem ser os mais populares, é sexo, bebidas e drogas, para este primeiro o processo resolvedor é a renúncia. Preenchendo a mente com coisas que lhe distraiam desses pensamentos, ler a bíblia é o ideal pois trará evolução espiritual, mas existe uma outra opção que também parece (mas não eh) ser promissora, que seria trocar esses vícios da luxúria pelo da ganância e sede de poder (dinheiro, influência, bens). A busca pela ganância também lhe levará ao sofrimento. A busca pela evolução espiritual  deve ser em renunciar a tudo isso, e na literalidade se fortalecendo espiritualmente indo a Igreja, e no processo inicial para quem está começando, é melhor ir na igreja sempre mesmo que logo em seguida tenha marcada para ir no puteiro, aos poucos você verá onde realmente se sentirá em paz, pois estará ali, comparando ponto a ponto.
+- Para quem vive neste mundo, os desejos que parecem ser os mais populares, é sexo, bebidas e drogas, para este primeiro o processo resolvedor é a renúncia. Preenchendo a mente com coisas que lhe distraiam desses pensamentos, ler a bíblia é o ideal pois trará evolução espiritual, pode-se também realizar trabalhos ou atividades que exercitem a mente de forma saudável, como jogos de lógica, matemática, ou brincadeiras, mas existe uma outra opção que também parece (mas não eh) ser promissora, que seria trocar esses vícios da luxúria pelo da ganância e sede de poder (dinheiro, influência, bens). A busca pela ganância também lhe levará ao sofrimento. A busca pela evolução espiritual  deve ser em renunciar a tudo isso, e na literalidade se fortalecendo espiritualmente indo a Igreja, e no processo inicial para quem está começando, é melhor ir na igreja sempre mesmo que logo em seguida tenha marcada para ir no puteiro, aos poucos você verá onde realmente se sentirá em paz, pois estará ali, comparando ponto a ponto.
+
+- Para superar esses desafios nunca esquecer também de que enriquece a alma com a caridade, jejum, oração, confissão e Eucaristia.
 
 - Mas depois de você se ver livre dessas coisas do mundo, de passar um tempo se fortalecendo espiritualmente na palavra, de como uma criança que acaba de nascer e bebeu do leite da mãe, agora evoluído e crescido é preciso que gere frutos, e gerar frutos é ir nos lugares onde o pecado impera, de saber discernir do que beber ou que não beber, do que comer e o que não comer, de saber orientar, de saber ensinar, de saber ser paciente pois não és dono de nada nem de ninguém, de ter ao próximo para libertar o próximo da escravidão do pecado(desejos meramente carnais).
 
@@ -1888,6 +1894,8 @@ Lucas 19
 
 - A concupiscência, os desejos da carne e mais especificamente os sexuais, são aflorados se você tem uma dia-dia com estresse, ações, ambientes que estimulam o caos ou agitação, pois os prazeres sexuais de forma DESORDENADA são algo que pode ser visto como um relaxamento para a carne como um falso remédio, mas que trás uma deturpação da alma. Ouvir músicas que contém instrumentos musicais que trazem agitação ao invés de harmonia, que lhe sugam energias ao invés de renova-las, vão contribuir para que você se torne refém dos vícios carnais. Alimentação irregular ou baseadas em óleo, frituras, massa, doces, refrigerantes contribuem para um corpo vulnerável a ceder aos prazeres da carne. Livros, vídeos, frases de efeito, todos com filosofias negras embutidas, com ideais vãos que irão lhe levar ao materialismo (orgânico ou não), ou que fará com que você inconscientemente seja guiada pelo medo, tristeza ou raiva egoísta, também irão enfraquecer seu Espírito e fazer com que os desejos da carne se aflorem.
 
+- Tome muito cuidado com os Prazeres que esvaziam a alma e matam a caridade da mesma, fazendo-se então perder o sentido da vida. Pois a árvore da vida não dá frutos para sua própria servidão mas para o seu entorno.
+
 - Além de evitar os maus hábitos que cedem aos desejos da carne, é necessário praticar os atos que fortalecem o Espírito, então é preciso sempre com humildade: leitura do evangelho/meditação da palavra, caridade, jejum, oração, confissão e Eucaristia. Músicas de arpa ou piano de relaxamento ajudam o corpo a entrar em sintonia com o Espírito. E sempre com Alegria, Esperança e paz bases do Amor de Cristo.
 
 - A falta de bons hábitos, juntamente com os maus hábitos deixando corpo, mente e Espírito desornados fará claramente com que você tenha os mais profundos e muitas vezes incontroláveis desejos da carne, sejam quaisquer que sejam os vícios.
@@ -1896,7 +1904,7 @@ Lucas 19
 
 - Não pode um homem VICIADO em pornografia ou masturbação, ou sexo casual julgar-se melhor que uma mulher viciada em sexo ou que não consegue controlar os desejos sexuais e decide praticar sexo antes do casamento, diferente de um homem que consegue se saciar na masturbação a mulher não consegue se saciar com uma simples masturbação, e em muitos casos nem com o ato sexual casual. Ambos devem se julgar errados, pois ambos sedem às tentações da carne. 
 
-- Enfatizo aqui a questão do problema do vício e a prática constante ou minimamente diária de prazeres sexuais que devem ser evitadas, mas também reconheço a dificuldade de se livrar de tais vícios de ejaculação que acredito que talvez reduzindo aos poucos de uma à 2 vezes na semanas, para evitar acúmulo de esperma, o que pode ser tratado com uma masturbação sem pornografia ou sem mentalização de sexo, apenas com o simples ato de estimular o órgão masculino (tente pensar em números ou contagem para tentar evitar de pensar em sexo), recomendo que essa masturbação não seja feito deitado ou sentado para não dar espaço para a preguiça, mas sim em pé estimulando as pernas, ou caso o homem acabe ejaculando naturalmente durante as noites de sono. Mesmo nessa redução dos vícios, é importante não se viciar e nem se apegar a essas práticas.
+- Enfatizo aqui a questão do problema do vício e a prática constante ou minimamente diária de prazeres sexuais que devem ser evitadas, mas também reconheço a dificuldade de se livrar de tais vícios de ejaculação que acredito que talvez reduzindo aos poucos de uma à 2 vezes na semanas, para evitar acúmulo de esperma, o que pode ser tratado com uma masturbação sem pornografia ou sem mentalização de sexo, apenas com o simples ato de estimular o órgão masculino (tente pensar em números ou contagem para tentar evitar de pensar em sexo), recomendo que essa masturbação não seja feito deitado ou sentado para não dar espaço para a preguiça, mas sim em pé estimulando as pernas, ou caso o homem acabe ejaculando naturalmente durante as noites de sono. Mesmo nessa redução dos vícios, é importante não se viciar e nem se apegar a essas práticas, importante procurar a Deus para lhe transformar, pois para Deus nada é impossível.
 
 - A mulher, ao não ser preenchida com o amor de fato, praticando muitas vezes um sexo casual com o parceiro, fica na ânsia e angústia de algo que lhe falta, ansiando cada vez mais por algo forte, e nessa falta de preenchimento de um amor real que seria a geração de uma nova vida, ela se desnorteia com sexos cada vez mais exóticos, loucos e busca por adrenalina.
 
@@ -2037,6 +2045,12 @@ Colossenses 3
 16. Habite ricamente em vocês a palavra de Cristo; ensinem e aconselhem-se uns aos outros com toda a sabedoria, e cantem salmos, hinos e cânticos espirituais com gratidão a Deus em seus corações.
 17. Tudo o que fizerem, seja em palavra ou em ação, façam-no em nome do Senhor Jesus, dando por meio dele graças a Deus Pai
 
+I Coríntios 1
+
+23. mas nós pregamos Cristo crucificado, escândalo para os judeus e loucura para os pagãos;
+
+- O que escandaliza aos homens não escandaliza a Deus, e o que escandaliza a Deus não escandaliza aos homens.
+
 <!-- TOC --><a name="4-tipos-de-homens"></a>
 #### 4 tipos de homens:
 
@@ -2104,7 +2118,7 @@ Colossenses 3
 
 - Uma vez escutei um padre dizendo que quando o mesmo era criança queria se casar cedo, e um sábio lhe disse, escreva em um papel uma lista com o título "Futura Esposa" com todas as características que você quer nessa pessoa, o padre escreveu 30 coisas, como ser leal, fiel, devota a Deus, posturada publicamente, compreensível, paciente, verdadeira, etc, coloque coisas honrosas e não futilidades passageiras. Depois de ter escrito ele entregou a lista para o sábio, e o sábio disse: agora mude o título e coloque "Futuro Eu".  Antes de exigir muito de alguém tenha pelo menos algo a mais do que futilidades carnais e passageiras a oferecer.
 
-- Mas essa sabedoria é incompleta, no processo de conhecer alguém, ela não virá pronta e na mesma maturidade que você, relacionamento se constrói, se você já é a pessoa da lista que você desejava, você concluiu a primeira etapa, a segunda e mais difícil será fazer da pessoa que você escolheu para ficar ao seu lado se tornar essa pessoa também da lista de virtudes que você desejou, o que requer paciência além da sabedoria. Não esquecer de conviver com essa pessoa na castidade e dificuldades, pois só assim você terá a certeza de que é dela que você gosta de verdade, e não de algo que ela lhe proporciona como: sexo, afeto, status, conforto, fama, etc. Ponto de atenção: apesar da paciência em tentar transformar em Cristo a outra pessoa, faça no desapego sem esperar nada em troca quando a mesma demonstra falta de reciprocidade, quando um não quer dois não brigam.
+- Mas essa sabedoria é incompleta, no processo de conhecer alguém, ela não virá pronta e na mesma maturidade que você, relacionamento se constrói, se você já é a pessoa da lista que você desejava, você concluiu a primeira etapa, a segunda e mais difícil será fazer da pessoa que você escolheu para ficar ao seu lado se tornar essa pessoa também da lista de virtudes que você desejou, o que requer paciência além da sabedoria, ser paciente para mudar a pessoa, mas não insistente, pois o amor não é forçado. Não esquecer de conviver com essa pessoa na castidade e dificuldades, pois só assim você terá a certeza de que é dela que você gosta de verdade, e não de algo que ela lhe proporciona como: sexo, afeto, status, conforto, fama, etc. Ponto de atenção: apesar da paciência em tentar transformar em Cristo a outra pessoa, faça no desapego sem esperar nada em troca quando a mesma demonstra falta de reciprocidade, quando um não quer dois não brigam.
 
 - No inferno existirá pessoas de grandes virtudes, mas nenhum humilde. Então cuidado com o discurso de dizer que você acha que merece alguém à sua altura com grandes virtudes, pois se você fosse mesmo não filtraria ninguém, mas sim tornaria virtuoso(a) até um mendigo(a) que estivesse ao seu lado. E se você falha já no primeiro mandamento de Amar a Deus sobre todas as coisas, inclusive falha em amar mais a Deus do que a própria vida, pode tirar seu cavalinho da chuva que suas virtudes nem são tão fortes assim.
 
@@ -2190,7 +2204,7 @@ Mateus 19
 
 - Para o homem: se você não estiver sacaneando a pessoa, também não pensando em outras pretendentes, não procurando tratar ela como um simples objeto sexual apenas, a grande dúvida será: será que ela vai me tomar metade dos bens? será que vou ter de pagar pensão para ela ? Será que ela é fiel ? Será que eu sou a primeira opção dela ? será que vai me largar nas primeiras dificuldades ?
 
-- Se praticar sexo antes do casamento na Igreja, já trate este ato como união definitiva perante Deus, pois se um filho vinher significa que foi selado. E que só irão se divorciar/separar em caso de adultério desde que não tenha sido selado através de um filho.
+- Se praticar sexo antes do casamento na Igreja, já trate este ato como união definitiva perante Deus, pois se um filho vier significa que foi selado. E que só irão se divorciar/separar em caso de adultério desde que não tenha sido selado através de um filho.
 
 <!-- TOC --><a name="relacionamento"></a>
 ##### Relacionamento
@@ -3079,6 +3093,13 @@ João 6
 
 - O pão e vinho deixa de ser apenas um pão e vinho e passa a ser corpo e sangue de Cristo (transubstanciação) se você tiver fé, nem que seja mínima e quase imperceptível, assim como um grão de mostarda. Mas se você faz desdém em seu orgulho do corpo e do vinho, talvez de fato não seja feito o que se chama transubstanciação, mas ainda também existirá a fé do sacerdote que administra a Eucaristia, desde que o mesmo sacerdote não guarde amarguras, soberbas, ou desdenhe da Santa Igreja Católica, ou das Igrejas Apostólicas, estando assim o sacerdote em comunhão com a sucessão Apostólica.
 
+<!-- TOC --><a name="sacramentos"></a>
+#### Sacramentos
+
+- Os Sacramentos são algo que você vive não no exterior, mas sim dentro de você, dentro do seu coração, é algo místico, os ritos exteriores são apenas para externalizar o que acontece, ou aconteceu, ou irá acontecer, ou deveria acontecer, dentro de você.
+
+- Negar um sacramento é também negar algo que ou já se tem, ou que poderia ter mas não terá mais mediante a rejeição.
+
 <!-- TOC --><a name="santa-missa"></a>
 #### Santa Missa
 
@@ -3397,20 +3418,48 @@ https://www.vatican.va/archive/compendium_ccc/documents/archive_2005_compendium-
 
 - Aí daqueles que morrem já estando mortos.
 
+<!-- TOC --><a name="pecado-original"></a>
+#### Pecado original
+
+Gênesis 3
+
+6. A mulher, vendo que o fruto da árvore era bom para comer, de agradável aspecto e mui apropriado para abrir a inteligência, tomou dele, comeu, e o apresentou também ao seu marido, que comeu igualmente.*
+
+I João 2
+
+15.Não ameis o mundo nem as coisas do mundo. Se alguém ama o mundo, não está nele o amor do Pai.
+16.Porque tudo o que há no mundo – a concupiscência da carne, a concupiscência dos olhos e a soberba da vida – não procede do Pai, mas do mundo.*
+
+- Concupiscência, já ao comer a fruta, doce para comer, agradável aos olhos e que oferece conhecimento. Concupiscência dos olhos (olhar), da carne (doce) e soberba da vida (conhecimento/posição/status).
+
+Mateus 19 
+
+25. A estas palavras seus discípulos, pasmados, perguntaram: “Quem poderá então salvar-se?”.
+26. Jesus olhou para eles e disse: “Aos homens isso é impossível, mas a Deus tudo é possível”.
+
+João 3
+
+6. O que nasceu da carne é carne, e o que nasceu do Espírito é espírito.
+
+- Para o homem é impossível, mas para Deus tudo é possível.
+
 <!-- TOC --><a name="pecados-mortais"></a>
 #### Pecados Mortais
 
 - Os pecados mortais são algo que para um Cristão lhe gerará tormento, mas para um ateu ou ignorante também, pois muito se percebe das consequências graves dos atos ao redor do ambiente. Um pecado mortal é um ato que não é pecado apenas pela prática por si só, pois se não, outros animais também estariam em pecado mortal, mas sim também pela consciência da mente e coração que sabem no fundo de si que tal ato não deveria ser realizado, por mais que um indivíduo negue ou até desconheça seu pecado inicialmente, a prática do mesmo gera um mancha negra no ambiente e no entorno daquele que praticou tal ato, o medo, tristeza, e talvez até raiva e ódio passam a si emanar em energias negras, e nesse momento o que antes não se sabia ser mortal se percebe, e aqui se deve ter a humildade de reconhecer o erro, pois se não o orgulho será o grande condenador da alma.
 
+- Segue uma tentativa de listar os pecados mortais mais evidentens:
+
     - 1- Homicídio devidamente intencional, não o intencional baseado nas leis dos homens, mas o intencional com ódio e orgulho no coração de quem o prática.
-    - 2- Adultério: nada mais é que ser escravo dos desejos carnais, e com grandes chances de que o homem ou mulher traído tenham um descontrole e tente contra a vida dos envolvidos. E muitos que praticam sabem do risco.
+    - 2- Adultério: nada mais é que ser escravo dos desejos carnais, e com grandes chances de que o homem ou mulher traído tenham um descontrole e tente contra a vida dos envolvidos ou destrua/desordene a família que é uma obra de Deus e não do homem. E muitos que praticam sabem do risco.
     - 3- Fornicação: também um escravo dos desejos carnais, contribuindo para que o próximo se torne escravo desses desejos e ainda mais quando realizado de forma a iludir o parceiro, passando uma ilusão de compromisso de casamento ou relacionamento que não iria existir.
     - 4- Roubo grave: escravo da ganância por matéria, se cegando quanto a dor alheia. Roubar alguém em algo que para a vítima lhe cause tormento, aqui não importa a quantidade, mas sim o valor para a vítima, seja valor de riqueza ou até sentimental(não entra aqui na discussão o pecado do apego da vítima a matéria).
-    - 5- Mentira grave: Uma mentira que causa um caos e termina em morte, gerando tormentos de remorso, piora mais ainda de juntar ao orgulho.
-    - 6- Pecados contra a fé: destilação de ódio ao invés de Amor, compaixão e Amor de Deus.
-    - 7- Embriaguez que leva a sua morte ou de outra pessoa, morrer ou matar em estado de embriaguez é angustiante, pois a mente e coração estarão em um estado de tormento.
+    - 5- Mentira grave: Uma mentira que causa um caos ou termina em morte, gerando tormentos de remorso, piora mais ainda de juntar ao orgulho.
+    - 6- Pecados contra a fé: destilação de ódio ao invés de Amor, falta de compaixão e Amor de Deus.
+    - 7- Embriaguez ou vícios que levam a sua morte ou de outra pessoa, morrer ou matar em estado de embriaguez é angustiante, seja a morte da carne ou da alma, pois a mente e coração estarão em um estado de tormento pela culpa do assassinato.
     - 8- Pecado contra os 10 mandamentos, muitos já citados, mas principalmente desrespeitar o pai e mãe quando o mesmo esta honrando à Deus. Não diria um desrespeito a um pai ou mãe que pede a um filho para fazer coisas erradas, ou pai ou mãe que não educam o filho pelo exemplo.
     - 9 Não comungar na Eucaristia, pois o homem não tem mais a árvore da vida (coração), mas através da Eucaristia o mesmo é revivido em Cristo. Eucaristia é mandamento de Cristo perpétuo, já predito em Êxodo 12.
+    - 10- Falta de caridade(Amor) na alma, achar que a vida é sobre viver os prazeres e não sobre servir, pois a árvore da vida não dá frutos para ela mesma mas para o que está a seu redor.
 
 IMPORTANTE: Não cabe a ninguém condenar alguém em tais pecados, pois é algo que remete as coisas do coração e que muitos não compreendem, cabe apenas o aviso de que  o ato por si e visto superficialmente pode significar algo mortal.
 
@@ -5179,7 +5228,7 @@ https://mundoeducacao.uol.com.br/historiadobrasil/barao-maua-industrializacao.ht
 
 - Criar bancos centrais chaves ao redor do mundo. Cada país ter sua conta bancária nesse país atrelado contabilizado em ouro, sem moeda superficial para usar ouro como lastro, evitando assim o golpe dos EUA.
 
-- Quem compra transfiro ouro 4x mais para o outro país para evitar constantes transportes de cargas de ouro repetidas vezes.
+- Quem compra transfere ouro 4x mais para o outro país para evitar constantes transportes de cargas de ouro repetidas vezes.
 
 Ex.:
 
@@ -5187,8 +5236,8 @@ Ex.:
 
 2- China compra 2Bi de mercado do Brasil, logo envia 8Bi em valor de barras de ouro para o BC do Brasil, Mas 6Bi fica na conta da China, e 2Bi vai para a conta do Brasil, mas a localização dos 8Bi fica no Brasil pois vai estar hospedado no Banco Central do Brasil.
 
-<!-- TOC --><a name="devedores-juros"></a>
-#### Devedores Juros
+<!-- TOC --><a name="devedores-de-juros"></a>
+#### Devedores de Juros
 
 - Emprestar dinheiro/(alguma coisa) quando tiveres de sobra, Não cobrar juros nos primeiros 30 dias, se for pago, trata como a dívida quitada, se antes de se completar 60 dias for solicitado empréstimo novamente, cobrais juros pois talvez quem pega emprestado precisa melhorar sua organização financeira de forma a ser revista, ou talvez quem pega esteja usando para proveito próprio em desejos carnais e não por pura necessidade.
 
