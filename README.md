@@ -3606,7 +3606,7 @@ Mateus 17
 12. Mas digo-vos que Elias já veio, e não o conheceram, mas fizeram-lhe tudo o que quiseram. Assim farão eles também padecer o Filho do homem.
 13. Então entenderam os discípulos que lhes falara de João o Batista.
 
-- Ao que parece, algo semelhante a reencarnação é algo que de fato é possível a exemplo de Elias, mas o que não seria possível para o todo poderoso que a tudo governa? e que Existe antes do próprio Universo, estando além do Tempo, Espaço e Matéria. O que não me cabe é olhar pelos olhos, olhar pelo carnal, ou tentar adivinhar reencarnações passadas me apegando a crenças que me fazem colocar algo na posição de Deus, paixões, apegos e amores que geram desobediência a Deus, como por exemplo se apegar a um bode/boi/vaca/cachorro dizendo que é um parente antepassado gerando um apego mais do que o normal, obviamente podem se tratar bem animais, e se for de estimação como um membro de família na devida posição de animal de estimação, mas esse apego, esse medo de perder um animal, como se amasse mais o animal do que a Deus tem de ser vigiado pela próprias pessoas que praticam tais atos.
+- Ao que parece, algo semelhante a reencarnação é algo que de fato é possível a exemplo de Elias, mas o que não seria possível para o todo poderoso que a tudo governa e que Existe antes do próprio Universo, estando além do Tempo, Espaço e Matéria. O que não me cabe é olhar pelos olhos, olhar pelo carnal, ou tentar adivinhar reencarnações passadas me apegando a crenças que me fazem colocar algo na posição de Deus, paixões, apegos e amores que geram desobediência a Deus, como por exemplo se apegar a um bode/boi/vaca/cachorro dizendo que é um parente antepassado gerando um apego mais do que o normal, obviamente podem se tratar bem animais, e se for de estimação como um membro de família na devida posição de animal de estimação, mas esse apego, esse medo de perder um animal, como se amasse mais o animal do que a Deus tem de ser vigiado pela próprias pessoas que praticam tais atos.
 
 - A crença na reencarnação é perigosa pois quando ela não lhe leva a pecar pelo APEGO EXCESSIVO a algo que já se foi dessa vida e você tenta adivinhar uma reencarnação, você também pode pecar pelo desprezo ao próximo dizendo que Fulano(qualquer pessoa) tem uma vida miserável e cheia de dificuldades por causa de pecados de vidas passadas.
 
@@ -3698,12 +3698,24 @@ João 3
 7. Não te maravilhes de que eu te tenha dito: Necessário vos é nascer de novo.
 8. O vento sopra onde quer; ouves-lhe o ruído, mas não sabes de onde vem, nem para onde vai. Assim acontece com aquele que nasceu do Espírito”.*
 
+Gênesis 1
+
+2. A terra estava sem forma e vazia; as trevas cobriam o abismo e o Espírito de Deus pairava sobre as águas." ... 
+
+Gênesis 2
+
+7. O Senhor Deus formou, pois, o homem do barro da terra, e inspirou-lhe nas narinas o sopro da vida e o homem se tornou um ser vivente.*
+
+- O que é gota dágua perto do mar ? E se coloco a gota de volta ao mar consigo voltar com a mesma gota ? E se a gota não volta o que faço? Mando mais para busca-la, ou mando mais gotas até que se anunde e afoguem na sua própria lama ?
+
+- O que é alma sem o Espírito, e o que é o Espírito sem a Alma ? A luz existe no espírito, e sem o espírito a alma não é nada. Mas o espírito sem a alma continua sendo luz. A alma que não se casa com o espírito para onde pensa que vai ? Reencarnar ? Sei muito bem o que faz alma no que chama reencarnação, pois não é obra da luz mas das trevas. Pois o nascimento vem da Luz que vem do Espírito, mas se a carne onde vai nascer a alma está rodeada de pecado, então deixará o Senhor que se abunde o pecado, para então transbordar a graça e então venha a Santidade. Oh Inferno, tu tremes agora diante do inevitável? Beberás de teu próprio veneno.
+
 <!-- TOC --><a name="ejaculação-sexo-vida"></a>
 #### Ejaculação, sexo, vida 
 
 - O esperma carrega parte da nossa alma, e dessa forma parte das energias que temos em nossa mente e coração, assim a forma como se mentaliza e se deseja o sexo diz um pouco sobre as energias positivas(Amor, alegria, esperança, paz) ou negativas(medo, tristeza, raiva, ódio, frustações, ansiedades, angústias) que irá se jogar nos espermatozoides presentes na ejaculação. A grande questão é que na concepção da vida depende do ovulo escolher qual espermatozoide irá se juntar ao ovulo, essa escolha pelo ovulo é algo inconsciente, e não depende de uma escolha do indivíduo, de certo, nesse momento podemos dizer que aqui está o carimbo de Deus na concepção ou não de uma vida.
 
-- Uma hipótese que não contradiz a decisão de que é Deus quem autorizar uma vida ou não, é que cada espermatozoide é algo criado por Deus para permitir que um espírito (bem ou mal) que estaria ao redor dos indivíduos no momento do sexo pudesse se atrelar ao espermatozoides e tentar assim nascer, cada espírito se atrelaria ao espermatozoide de acordo com a energia do homem e da mulher ali presentes no ato do sexo (sexo verdadeiramente de amor ou apenas carnal/sujo), podendo não ser algo em absoluto como 100% dos espermatozoides em estado de Luz(Amor) e sem nenhum em trevas(falta de Luz), pode sim ser parcial, 80% Amor e 20% trevas e vice-versa, mas no final a decisão é de Deus.
+- Uma hipótese que não contradiz a decisão de que é Deus quem autorizar uma vida ou não, é que cada espermatozoide é algo criado por Deus para permitir que um espírito (bem ou mal) que estaria ao redor dos indivíduos no momento do sexo pudesse se atrelar ao espermatozoides e tentar assim nascer, cada espírito se atrelaria ao espermatozoide de acordo com a energia do homem e da mulher ali presentes no ato do sexo (sexo verdadeiramente de amor ou apenas carnal/sujo), podendo não ser algo em absoluto como 100% dos espermatozoides em estado de Luz(Amor) e sem nenhum em trevas(falta de Luz), pode sim ser parcial, 80% Amor e 20% trevas e vice-versa, mas no final a decisão é de Deus. Na concepção do nascimento tudo será purificado na Luz.
 
 <!-- TOC --><a name="sobre-julgamento-e-autoridade"></a>
 #### Sobre julgamento e autoridade
