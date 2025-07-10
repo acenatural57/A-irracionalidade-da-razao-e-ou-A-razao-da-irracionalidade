@@ -9,6 +9,7 @@
       + [Missão](#missão)
       + [Sobre estudos](#sobre-estudos)
       + [Criação](#criação)
+      + [A queda](#a-queda)
       + [O mal](#o-mal)
       + [Gnose é o mal (ganância por conhecimento)](#gnose-é-o-mal-ganância-por-conhecimento)
       + [Mentiras e Manipulações](#mentiras-e-manipulações)
@@ -107,6 +108,7 @@
          - [Dar a outra face após a traição no relacionamento](#dar-a-outra-face-após-a-traição-no-relacionamento)
          - [Ajudar quem está quebrado](#ajudar-quem-está-quebrado)
          - [Dádivas](#dádivas)
+         - [Cúmulo da putaria e safadeza](#cúmulo-da-putaria-e-safadeza)
          - [Reflexão da história](#reflexão-da-história)
          - [Família ](#família)
          - [Atualidade](#atualidade)
@@ -299,7 +301,6 @@
       + [Livro 3 Enoque](#livro-3-enoque)
       + [Signos](#signos)
       + [Djavu](#djavu)
-      + [A queda](#a-queda)
       + [Relação com a sociedade](#relação-com-a-sociedade)
       + [Porque acreditar em Deus ?](#porque-acreditar-em-deus-)
       + [Pessoal demais](#pessoal-demais)
@@ -586,7 +587,7 @@ Genesis 2
 24. Por isso, o homem deixa o seu pai e a sua mãe para se unir à sua mulher; e já não são mais que uma só carne.*
 25. O homem e a mulher estavam nus, e não se envergonhavam.
 
-- Criação da mulher e das primeiras ordens, de não serem mais duas, mas uma carne, podendo já expressar a relação íntima que já existia antes da desobediência.
+- Criação da mulher e das primeiras ordens, de não serem mais duas, mas uma carne, podendo já expressar a relação íntima (sexo aberto a vida) que já existia antes da desobediência.
 
 Gênesis 3
 
@@ -599,6 +600,51 @@ Gênesis 3
 - Lilith/Gadréu talvez tenha sido um Espírito/Anjo seduzido por Lúcifer/Satanás/Samiaza, ou a própria serpente que viria a ser um demônio depois de sua traição a Deus, que vivia próximo do local onde Adão vivia, Deus e Adão provavelmente aqui eram um só, com Deus através do seu Espírito Santo habitando no coração de Adão, mas com Adão ainda limitado no conhecimento, e esta serpente desejava provar do corpo de Adão e habitar nele assim como Deus, a serpente acaba corrompendo a mente do homem, e consequentemente os planos iniciais de Deus, mas a serpente não foi feita para tal tarefa, a serpente não era uma auxiliadora adequada ao homem, e nos desejos, ou ciúmes, ou indignações desordenadas em apenas servir a Deus e Adão, induziu a pequena Eva (a verdadeira esposa de Adão) e consequentemente a Adão a comer do fruto proibido e assim desobedecer a Deus.
 
 - A serpente em seu egoísmo/desejo/ciúme/indignação pelas coisas de Deus, Deus que zelava muito por Adão e Eva, a serpente induz Eva pela ganância de conhecimento e poder, condenando Eva e Adão a morte ao se afastarem de Deus, neste momento a relação sexual entre eles após ambos comer do fruto, foi de uma forma deturpada, sendo Eva possuída naquele momento pela serpente/espírito/anjo/demônio gerando a Caim (uma parte masculina das trevas). Após ser exorcizada, Eva fica livre do transe da serpente e provavelmente gere a Abel que é visto com mais graça aos olhos de Deus. Aqui dando uma continuidade, Caim (filho da perdição) após matar Abel por inveja/mágoa, encontra um mulher pela terra de Node, talvez uma outra filha da perdição de Eva, que saiu também de perto dos pais Adão e Eva, e passaram Caim e esta outra mulher a ter filhos aqui dando início a linhagem dos filhos da perdição.
+
+<!-- TOC --><a name="a-queda"></a>
+#### A queda
+
+Gênesis 3
+
+6. A mulher, vendo que o fruto da árvore era bom para comer, de agradável aspecto e mui apropriado para abrir a inteligência, tomou dele, comeu, e o apresentou também ao seu marido, que comeu igualmente.*
+7. Então os seus olhos abriram-se; e, vendo que estavam nus, tomaram folhas de figueira, ligaram-nas e fizeram tangas para si.
+8. E eis que ouviram o barulho (dos passos) do Senhor Deus que passeava no jardim, à hora da brisa da tarde. O homem e sua mulher esconderam-se da face do Senhor Deus, no meio das árvores do jardim.
+9. Mas o Senhor Deus chamou o homem e perguntou-lhe: “Onde estás?”.
+10. E ele respondeu: “Ouvi o barulho dos vossos passos no jardim; tive medo, porque estou nu; e ocultei-me”.
+11. O Senhor Deus disse: “Quem te revelou que estavas nu? Terias tu porventura comido do fruto da árvore que eu te havia proibido de comer?”.
+
+- Quando Adão e Eva percebem que estavam nus, eles percebem que algo fizeram de errado, algo que Deus disse que não deveriam fazer. O que exatamente era esse fruto ? Esse pecado original que nos afasta de Deus ? Devemos interpretar de forma literal como uma Árvore do conhecimento ? Se adão e Eva entenderam que estavam nus, é porque eles transaram então ? Provavelmente após comerem da árvore do conhecimento, Eva e Adão tiveram uma relação íntima deturpada, mas antes de comer do fruto do conhecimento já tinham relação íntima, mas não em pecado com um sexo deturpado. Mas eles tiveram com objetivo puramente de prazer e em desobediência tomados por desejos (concuspiscência), uma relação em que a mulher tomada de desejos insistiu para que o homem continuasse o ato sexual, não apenas uma vez mas também continuando mais de uma apenas por prazer, mesmo o homem já tendo realizado a primeira ejaculação de forma rápida, natural da natureza esse processo ejaculatório basta olhar para os passarinhos, mas a mulher ainda cheia de desejos e insatisfeita insiste para que o homem continue, e digo mais, para tentar manter a ereção masculina por um período maior sem ejacular ousaria dizer que ela usou algo semelhante a uma tática que é o sexo oral em que a sensibilidade peniana do homem diminui mas a ereção continua, o homem se deixa levar pelo amor/desejo que tem pela mulher esquecendo a Deus e mantém a relação mesmo com seu coração não desejando mais o ato, então começa aqui o pecado original, a mulher se deleita em seus desejos sexuais e posteriormente o homem começa aos poucos a se deleitar também, abre-se a mente para todo tipo de maldade, desconfiança e perversidade "o fruto da árvore era bom para comer, de agradável aspecto e mui apropriado para abrir a inteligência". O sexo deveria ser para procriação com abertura para a vida, uma consequência do Amor real que já se revela no beijo, podendo sim ocorrer mais de uma vez, mas não com objetivo puramente de prazer, o prazer seria apenas uma consequência do Amor que brota do coração e isso independe do sexo, como o sexo passou a ser feito apenas por prazer se distanciando do coração e do beijo, aqui o homem se deixou levar pela concupiscência da carne (sabor doce), dos olhos(agradável aos olhos) e da soberba da vida (conhecimento).
+
+- Após isso tiveram um sentimento de culpa, por desobedecerem a Deus. E viram que seus órgãos genitais estavam diferentes, e então decidiram se esconder do senhor. Mas o sexo por si só é uma dádiva de Deus, mas foi corrompido ao ser praticado em desobediência, isto é tão verdadeiro que ao fazer sexo em desobediência você se sente culpado, mas ao fazê-lo já com bençãos, você não sente culpa.
+
+- Após provar da árvore do conhecimento e do ato de desobediência a Deus, o homem é expulso do Jardim do Éden, e a arvora da vida é escondida do homem para ele não viva eternamente no pecado. Na prática a expulsão do Éden e a perda árvore da vida é o distanciamento do homem com Deus, pois o homem escolheu pais os prazeres da carne do que os tesouros do coração e dos céus.
+
+ - A Árvore do conhecimento são neurônios, nervos e sinapses da mente.
+
+Sinapses - Referência: 
+
+  - https://brasilescola.uol.com.br/o-que-e/biologia/o-que-e-sinapse.htm
+
+  - https://www.uol.com.br/vivabem/noticias/redacao/2022/05/30/sexo-humor-sono-estresse-entenda-o-que-sao-e-papel-dos-neutransmissores.htm
+
+  - https://www.todamateria.com.br/sinapses/
+
+"
+Adão e Eva, como os primeiros humanos, geraram a humanidade inteira. Seus filhos, Caim e Abel, são as figuras mais conhecidas, mas a Bíblia também menciona outros filhos e filhas (Gênesis 5:4). A linhagem que deu origem ao povo de Israel começa com Sete, filho de Adão, que é mencionado como o ancestral de Noé, de quem descendem os hebreus.
+
+Após o dilúvio, a linhagem se torna mais específica com Noé e seus filhos: Sem, Cam e Jafé. A partir de Sem, surgem os hebreus, incluindo Abraão, que é considerado o pai do povo de Israel. Por outro lado, os descendentes de Cam e Jafé, muitas vezes vistos como as nações estrangeiras, representam os povos que não pertencem à linhagem de Abraão.
+
+Portanto, a distinção entre os filhos de Israel e os estrangeiros remonta a essas linhagens e à história de suas famílias ao longo das gerações.
+"
+
+- Após matar Abel, Caim foi confrontado por Deus e recebeu um castigo. Ele foi condenado a vagar como um fugitivo e errante na terra. Deus também colocou um sinal sobre Caim para protegê-lo, garantindo que ninguém o matasse (Gênesis 4:15). Caim então se estabeleceu na terra de Node, a leste do Éden, onde construiu uma cidade e teve filhos, continuando sua linhagem.
+
+Gênesis 5
+
+1. Este é o registro da descendência de Adão: Quando Deus criou o homem, à semelhança de Deus o fez;
+2. homem e mulher os criou. Quando foram criados, ele os abençoou e os chamou Homem.
+3. Aos 130 anos, Adão gerou um filho à sua semelhança, conforme a sua imagem; e deu-lhe o nome de Sete.
+4. Depois que gerou Sete, Adão viveu 800 anos e gerou outros filhos e filhas.
 
 <!-- TOC --><a name="o-mal"></a>
 #### O mal
@@ -646,8 +692,6 @@ João 8
 
 - Sempre podemos dizer que estamos bem, pois muitas vezes temos saúde (o que alguns não tem), por termos comida e dinheiro (o que alguns também não tem). Mas a maior mentira que você pode dizer para si mesmo é que está bem de Espírito, quando evidentemente você está mergulhado nas vaidades do mundo, nos medo, nas angústias, raivas e ansiedades do mundo. Estará bem de Espírito quando o Espírito Santo habitar em você, e então você não mais ter medo, Tristeza, raiva egoísta, ódio ou desprezo , mas sim humildade, alegria, esperança, paciência e Amor.
 
-- Sempre podemos dizer que estamos bem, pois muitas vezes temos saúde (o que alguns não tem), por termos comida e dinheiro (o que alguns também não tem). Mas a maior mentira que você pode dizer para si mesmo é que está bem de Espírito, quando evidentemente você está mergulhado nas vaidades do mundo, nos medo, nas angústias, raivas e ansiedades do mundo. Estará bem de Espírito quando o Espírito Santo habitar em você, e então você não mais ter medo, Tristeza, raiva egoísta, ódio ou desprezo , mas sim humildade, alegria, esperança, paciência e Amor.
-
 - Podemos mentir para todo mundo e até para nós mesmos através de justificativas e explicações, mas não conseguimos mentir para nosso próprio coração.
 
 <!-- TOC --><a name="trevas"></a>
@@ -673,7 +717,7 @@ https://bibliotecacatolica.com.br/blog/formacao/o-problema-do-mal/
 
 - As verdades das trevas tem de ser compreendidas em sua profundidade(maturidade), pois se não, como pode-se ceifar o joio verde (sem maturidade/sem profundidade) sem saber se o mesmo é joio ou trigo? Mas fique atento, este é um caminho que requer extrema força da mente e do coração junto com Deus. Então é necessário estar em intimidade com Deus, através da confissão e da comunhão através da sagrada Eucaristia.
 
-- As verdades das trevas se escutadas e inseridas na nossa mente são como uma semente, precisamos nos colocar com um coração puro como uma criança inocente como Jesus nos pede. Ao serem inseridas essas sementes, devemos ser prudentes ao deixar essa semente amadurecer em nossa mente, pois como saberemos se essa semente verde plantada é joio ou trigo se não amadurecemos em nossa mente? Pois em verdade vos digo, já conheces o bem pelo que está escrito, Deus é amor, e amor vem de Alegria, esperança, paz/paciência, dor, e antes delas a humildade, Deus não vem do medo, tristeza, raiva egoísta, inveja, angústias, ambições e muito menos do orgulho(amor próprio). Então deixar amadurecer um pouco a ideia plantada como semente em sua mente, pedindo sempre humildemente, ajoelhando-se e orando a Deus para na sabedoria não se precipitar em removê-la antes do tempo e julgar errado, como também não deixar amadurecer e se consumar de tal forma que erre e lhe deixe sucumbir ao mal. Mas se por caso você(eu) errar neste perigoso serviço de servi a Deus para depois avisar ao irmãos com absoluta certeza e com argumentos do porque daquelas águas não bebereis, peço diante mão perdão pelos pecados que cometerei por tentar compreender o porque das trevas. Pois sei que foi eu que pedi a ti sabedoria, mas também pedi proteção para não me deixar levar as tentações. E este serviço que faço que é para te servir e trazer paz ao seu corpo que é composto por vossos filhos.
+- As verdades das trevas se escutadas e inseridas na nossa mente são como uma semente, precisamos nos colocar com um coração puro como uma criança inocente como Jesus nos pede. Ao serem inseridas essas sementes, devemos ser prudentes ao deixar essa semente amadurecer em nossa mente, pois como saberemos se essa semente verde plantada é joio ou trigo se não amadurecemos em nossa mente? Pois em verdade vos digo, já conheces o bem pelo que está escrito, Deus é amor, e amor transparece Alegria, esperança, paz/paciência, dor, e antes delas a humildade, Deus não vem do medo, tristeza, raiva egoísta, inveja, angústias, ambições e muito menos do orgulho(amor próprio). Então deixar amadurecer um pouco a ideia plantada como semente em sua mente, pedindo sempre humildemente, ajoelhando-se e orando a Deus para na sabedoria não se precipitar em removê-la antes do tempo e julgar errado, como também não deixar amadurecer e se consumar de tal forma que erre e lhe deixe sucumbir ao mal. Mas se por caso você(eu) errar neste perigoso serviço de servi a Deus para depois avisar ao irmãos com absoluta certeza e com argumentos do porque daquelas águas não bebereis, peço diante mão perdão pelos pecados que cometerei por tentar compreender o porque das trevas. Pois sei que foi eu que pedi a ti sabedoria, mas também pedi proteção para não me deixar levar as tentações. E este serviço que faço que é para te servir e trazer paz ao seu corpo que é composto por vossos filhos.
 
 - Muito mais válido aquele que trilhou o caminho do pecado e se arrependeu, do que aquele que tem medo de pecar. Isto não é para ser um convite ao pecado, mas um alerta para aqueles que não pecam por medo, quando deveriam não pecar por estar em estado de graça, ou por de fato controlarem seus próprios desejos pois deram a sua palavra ao senhor, e palavras devem ser honradas.
 
@@ -1094,18 +1138,18 @@ Apocalipse 3
 
 - Mas não confundir humildade com paciência e mansidão, pois paciência tem limite, e até no amor existe a dor amarga da dura verdade fervorosa que tem de ser dita por amor a Deus e ao próximo, neste momento ame mais a verdade do que qualquer imagem/título de humilde ou manso que homens de carne tem de você.
 
-- Necessário muitas vezes reconhecer nossas limitações e que precisamos de ajuda, precisamos saber pedir antes de tudo a Deus pois é ele quem decide e com ele já temos tudo pois mesmo que encontremos a morte viveremos pois teremos Deus e o resto é passageiro. Depois disso, ter humildade e dexar o orgulho e vergonha de lado e quando necessário pedir ajuda do próximo quando precisarmos, seja em uma dúvida, auxílio material, humano, ou meramente de conselho, e se nos recusarem a nos ajudar, aceitar sem ressentimento o não. Quando pedirmos ajuda, não deve ser para continuarmos precisando do próximo nos tornando folgados e acomodados, mas para que o mesmo nos ajude a caminhar de forma autônoma agora precisando apenas de Deus.
+- Necessário muitas vezes reconhecer nossas limitações e que precisamos de ajuda, precisamos saber pedir antes de tudo a Deus pois é ele quem decide e com ele já temos tudo pois mesmo que encontremos a morte viveremos pois teremos Deus e o resto é passageiro. Depois disso, ter humildade e deixar o orgulho e vergonha de lado e quando necessário pedir ajuda do próximo quando precisarmos, seja em uma dúvida, auxílio material, humano, ou meramente de conselho, e se nos recusarem a nos ajudar, aceitar sem ressentimento o não. Quando pedirmos ajuda, não deve ser para continuarmos precisando do próximo nos tornando folgados e acomodados, mas para que o mesmo nos ajude a caminhar de forma autônoma agora precisando apenas de Deus.
 
 <!-- TOC --><a name="ignorância"></a>
 #### Ignorância
 
 - Na imensidão da minha mente me perco, me debruçando com verdades e incertezas, apreciando a felicidade da ignorância e a desilusão de um sábio.
 
-- Ignorância é uma dádiva, o conhecimento pode ser deprimente para a carne. Por isso seja humilde para deixar crescer a Alegria, Esperança e paz para gerar o Amor a Deus.
+- Ignorância é uma dádiva, o conhecimento pode ser deprimente para a carne. Por isso seja humilde para deixar crescer a Alegria, Esperança e Paz que são as bases do Amor a Deus.
 
 - O conhecimento e sabedoria podem parecer lhe libertar da ignorância, mas sem Amor a Deus você se torna um prisioneiro do conhecimento e da sabedoria.
 
-- Senhor às vezes tu me dá conhecimento, e de início ao se deparar com esse conhecimento, eu fico angustiado(não pelo orgulho), mas ao ver o sofrimento alheio e não compreender de imediato (olha o problemático imediatismo aqui, o inimigo da paciência/paz) o porque é necessário tal sofrimento alheio, se fosse em mim em nada sofreria, ou pelo menos suportaria, mas esse do conhecimento me faz tratar a ignorância como dádiva, e de fato em um certo estado ou perspectiva pode ser. Por fim só agradeço por em seguida reconfortar o meu coração e ver sempre com bons olhos e sabendo que tudo tu sabes, e nem tudo eu compreendo, e devo apenas ser humilde para manter Alegria, esperança e paz gerando assim o Amor em ti oh meu bom Deus.
+- Senhor às vezes tu me dá conhecimento, e de início ao se deparar com esse conhecimento, eu fico angustiado(não pelo orgulho), mas ao ver o sofrimento alheio e não compreender de imediato (olha o problemático imediatismo aqui, o inimigo da paciência/paz) o porque é necessário tal sofrimento alheio, se fosse em mim em nada sofreria, ou pelo menos suportaria, mas esse do conhecimento me faz tratar a ignorância como dádiva, e de fato em um certo estado ou perspectiva pode ser. Por fim só agradeço por em seguida reconfortar o meu coração e ver sempre com bons olhos e sabendo que tudo tu sabes, e nem tudo eu compreendo, e devo apenas ser humilde para manter Alegria, Esperança e Paz que são as bases do teu Amor em ti oh meu bom Deus.
 
 <!-- TOC --><a name="dar-a-outra-face"></a>
 #### Dar a outra face
@@ -1347,7 +1391,7 @@ No final vai estar o seguinte:
 João encontrou o dono da loja com seu irmão. 
 "
 
-- Qual perspectiva vais olhar? Nessa frase neutra e sem contexto tanto faz se é João que tem irmão, ou o dono da loja. Mas supondo agora um contexto maior, que foi dito que João foi o único filho de uma mulher. E essa mensagem foi passada por várias bocas. Hora, chegará um dia que uma boca dirá com fervor: "mentira! foi dito em um momento que estava João com seu irmão indo a uma loja." Agora pense. O que esse fervor gerou ? Divisão? Medo ? Intriga ? Que emoções e sentimentos isso vai gerar ? Alegria, esperança, paz, gerando Amor ? Ou será, que inicialmente medo, medo de ter caído na mentira de outros, gerando uma falsa sensação de felicidade ao contrariar algo e encher-se de si ao descobrir a verdade que ninguém descobriu ? Pois vigie o que a dúvida gera em teu coração, e que resultados dará no final. Pois as consequências das tuas obras e escolhas podem (não afirmação) te definir quem és tu.
+- Qual perspectiva vais olhar? Nessa frase neutra e sem contexto tanto faz se é João que tem irmão, ou o dono da loja. Mas supondo agora um contexto maior, que foi dito que João foi o único filho de uma mulher. E essa mensagem foi passada por várias bocas. Hora, chegará um dia que uma boca dirá com fervor: "mentira! foi dito em um momento que estava João com seu irmão indo a uma loja." Agora pense. O que esse fervor gerou ? Divisão? Medo ? Intriga ? Que emoções e sentimentos isso vai gerar ? Alegria, esperança, paz, Amor ? Ou será, que inicialmente medo, medo de ter caído na mentira de outros, gerando uma falsa sensação de felicidade ao contrariar algo e encher-se de si ao descobrir a verdade que ninguém descobriu ? Pois vigie o que a dúvida gera em teu coração, e que resultados dará no final. Pois as consequências das tuas obras e escolhas podem (não afirmação) te definir quem és tu.
 
 Vídeo: Além da bíblia, as interpretações
 https://youtu.be/k15GZ6Of0Ho?si=IWR1G02z4yeD0nzT
@@ -1389,9 +1433,9 @@ https://youtu.be/k15GZ6Of0Ho?si=IWR1G02z4yeD0nzT
 <!-- TOC --><a name="roupas-e-vestes"></a>
 #### Roupas e vestes
 
-- A roupa em si não é o problema, mas sim a necessidade de se exibir, o pecado da Luxúria e vaidade aonde você mesmo condena sua alma ao se transformar em um objeto da Luxúria, prendendo sua alma a materialidade, seja homem ou mulher, isso fica evidente em preocupações excessivas com aparências, olhar-se direto/constantemente para o espelho, repito que não tem problema uma olhada, mas sim o vício/apego de estar querendo se ver ao invés de curtir o ambiente, curtir os momentos com familiares amigos ou simplesmente a paisagem.
+- A roupa em si não é o problema, mas sim a necessidade de se exibir, o pecado da Luxúria e vaidade aonde você mesmo condena sua alma ao se transformar em um objeto da Luxúria, prendendo sua alma a materialidade, seja homem ou mulher, isso fica evidente em preocupações excessivas com aparências sem a modéstia, olhar-se direto/constantemente para o espelho, repito que não tem problema uma olhada, mas sim o vício/apego de estar querendo se ver ao invés de curtir o ambiente, curtir os momentos com familiares amigos ou simplesmente a paisagem.
 
-- Existe também as roupas que podem se considerar vulgares, em que as roupas e seu uso ao serem vistas de forma isoladas nem teriam problemas, é tanto que entre seres maduros espiritualmente, a roupa e quem a usa por mais vulgar que seja não passa de pó, mas para os não evoluídos elas por debaixo dos panos (profundezas do coração) escondem a auto condenação da alma (devido aos apegos da Luxúria), como também a condenação ou tentação de condenar outras almas ao fazerem as mesmas se desvirtuaram do Espírito e se apegarem a matéria e prazeres, superficialidades da carne/matéria. 
+- Existe também as roupas que podem se considerar vulgares, em que as roupas e seu uso ao serem vistas de forma isoladas nem teriam problemas, é tanto que entre seres maduros espiritualmente, a roupa e quem a usa por mais vulgar que seja não passa de pó, mas para os não evoluídos elas por debaixo dos panos (profundezas do coração) escondem a auto condenação da alma (devido aos apegos da Luxúria), como também a condenação ou tentação de condenar outras almas ao fazerem as mesmas se desvirtuarem do Espírito e se apegarem a matéria e prazeres, superficialidades da carne/matéria, então a sua roupa indecente chega a ser uma tentação ao pudor para o próximo que ainda está preso em desejos carnais, e passa a ser sua culpa por falta de caridade, e é o seu apego ou orgulho em não reconhecer isso que determina a sentença da sua alma.
 
 - Uma importante observação, maturidade Espiritual deve ser sempre em Cristo, gerando Amor a Deus e ao próximo, com compaixão e compreensão, pois existe também uma evolução Espiritual mediana, em que se está desapegado de alguns fatores como Luxúria mas profundamente se perde no orgulho e Ego.
 
@@ -1874,7 +1918,7 @@ Lucas 19
 <!-- TOC --><a name="consciência-x-sonhos-aos-dormir"></a>
 #### Consciência x Sonhos aos dormir
 
-- Muitas vezes já me deparei em sonhos, fazendo coisas que parecia que não era eu, tendo desejos que via que não era eu, em nenhum momento nesses sonhos eu me via no espelho, mas muitas vezes me caindo de um prédio ou precipício, me afogando, e depois acordando, e muitas vezes com pessoas que eu nunca tinha visto fazendo um mal a alguém como sexo, estupros, e depois acordando, sem remorsos pois entendia que era apenas sonho e ninguém precisaria saber, e que eu mesmo sei que não faria isso de mal aos outros, pelo menos não enquanto acreditasse e tivesse fé em Deus, pois com Deus eu já tentei fazer o mal e não consegui, mas sem Deus confesso que não teria limites. Mas se não foi eu, quem foi ? Em um palpite eu diria que Espíritos que entram na sua mente para lhe possuir e tentar sentir um pouco dos prazeres e adrenalinas do corpo, espíritos ainda apegados a matéria que apenas atormentam a si mesmos, e você é só mais uma vítima do inferno dos prazeres mundanos que você escolhe, desses espírito que talvez sejam demônios, ou talvez apenas espíritos travessos.
+- Muitas vezes já me deparei em sonhos, fazendo coisas que parecia que não era eu, tendo desejos que via que não era eu, em nenhum momento nesses sonhos eu me via no espelho, mas muitas vezes me vi caindo de um prédio ou precipício, me afogando, e depois acordando, e muitas vezes com pessoas que eu nunca tinha visto fazendo algum mal a alguém como sexo puramente de prazer e depois acordando, sem remorsos pois entendia que era apenas sonho e ninguém precisaria saber, e que eu mesmo sei que não faria certas maldades aos outros, pelo menos não enquanto acreditasse e tivesse fé em Deus, pois com Deus eu já tentei fazer o mal e não consegui, mas sem Deus confesso que não teria limites. Mas se não foi eu, quem foi ? Em um palpite eu diria que Espíritos que entram na sua mente para lhe possuir e tentar sentir um pouco dos prazeres e adrenalinas do corpo, espíritos ainda apegados a matéria que apenas atormentam a si mesmos, e você é só mais uma vítima do inferno dos prazeres mundanos que você escolhe, desses espírito que talvez sejam demônios, ou talvez apenas espíritos travessos.
 
 <!-- TOC --><a name="dos-desejos-estéticos-ou-performance-materialistas"></a>
 #### Dos desejos estéticos ou performance materialistas
@@ -1892,6 +1936,10 @@ Lucas 19
 
 - É necessário manter o corpo, mente e Espírito em equilíbrio e para isso deve-se evitar o mal, e praticar o bem tanto em Corpo, Mente e Espírito.
 
+- O corpo é cheio de energia por natureza, mas ao não saber canalizar essa energia para coisas saudáveis, como trabalho, serviço ao próximo, caridade, atividades físicas, e também ao não ter uma alimentação e estilo de vida regular e saudável, acaba ficando suscetível às suas carências caso elas existam, geralmente a carência social (necessidade de companhia), carência afetiva/emocional, carência sexual/prazer/diversão, nessa auto afirmação de que precisa satisfazer essas carências para ser feliz acaba canalizando suas energias para preenchê-las com prazeres passageiros, superficiais/supérfluos, não entendendo que, para quem tem Deus, nada disso importa, mesmo que esteja sozinho por anos.
+
+- Ejaculação, no homem o corpo expele naturalmente esperma quando o mesmo passa um período sem realizar atividades sexuais ou de autoestimulação, não é algo que nenhum homem deva se preocupar nem mentalizar que por causa disto precisa de uma mulher, ou precise se autoestimular, preencher a mente com essas coisas só vai lhe causar ansiedades, angústias e tomadas de decisões erradas. É preciso entender a naturalidade do organismo e sua energia, limpar a mente e canalizar a energia para outras atividades e não apenas obtenção de prazer/diversão.
+
 - A concupiscência, os desejos da carne e mais especificamente os sexuais, são aflorados se você tem uma dia-dia com estresse, ações, ambientes que estimulam o caos ou agitação, pois os prazeres sexuais de forma DESORDENADA são algo que pode ser visto como um relaxamento para a carne como um falso remédio, mas que trás uma deturpação da alma. Ouvir músicas que contém instrumentos musicais que trazem agitação ao invés de harmonia, que lhe sugam energias ao invés de renova-las, vão contribuir para que você se torne refém dos vícios carnais. Alimentação irregular ou baseadas em óleo, frituras, massa, doces, refrigerantes contribuem para um corpo vulnerável a ceder aos prazeres da carne. Livros, vídeos, frases de efeito, todos com filosofias negras embutidas, com ideais vãos que irão lhe levar ao materialismo (orgânico ou não), ou que fará com que você inconscientemente seja guiada pelo medo, tristeza ou raiva egoísta, também irão enfraquecer seu Espírito e fazer com que os desejos da carne se aflorem.
 
 - Tome muito cuidado com os Prazeres que esvaziam a alma e matam a caridade da mesma, fazendo-se então perder o sentido da vida. Pois a árvore da vida não dá frutos para sua própria servidão mas para o seu entorno.
@@ -1904,15 +1952,15 @@ Lucas 19
 
 - Não pode um homem VICIADO em pornografia ou masturbação, ou sexo casual julgar-se melhor que uma mulher viciada em sexo ou que não consegue controlar os desejos sexuais e decide praticar sexo antes do casamento, diferente de um homem que consegue se saciar na masturbação a mulher não consegue se saciar com uma simples masturbação, e em muitos casos nem com o ato sexual casual. Ambos devem se julgar errados, pois ambos sedem às tentações da carne. 
 
-- Enfatizo aqui a questão do problema do vício e a prática constante ou minimamente diária de prazeres sexuais que devem ser evitadas, mas também reconheço a dificuldade de se livrar de tais vícios de ejaculação que acredito que talvez reduzindo aos poucos de uma à 2 vezes na semanas, para evitar acúmulo de esperma, o que pode ser tratado com uma masturbação sem pornografia ou sem mentalização de sexo, apenas com o simples ato de estimular o órgão masculino (tente pensar em números ou contagem para tentar evitar de pensar em sexo), recomendo que essa masturbação não seja feito deitado ou sentado para não dar espaço para a preguiça, mas sim em pé estimulando as pernas, ou caso o homem acabe ejaculando naturalmente durante as noites de sono. Mesmo nessa redução dos vícios, é importante não se viciar e nem se apegar a essas práticas, importante procurar a Deus para lhe transformar, pois para Deus nada é impossível.
+- Enfatizo aqui a questão do problema do vício e a prática constante ou minimamente diária de prazeres sexuais que devem ser evitadas, mas também reconheço a dificuldade de se livrar de tais vícios de ejaculação que acredito que talvez reduzindo aos poucos de uma à 2 vezes na semanas, para evitar acúmulo de esperma e dores testiculares, o que pode ser tratado com uma masturbação sem pornografia ou sem mentalização de sexo, apenas com o simples ato de estimular o órgão masculino (tente pensar em números ou contagem para tentar evitar de pensar em sexo), recomendo que essa masturbação não seja feito deitado ou sentado para não dar espaço para a preguiça, mas sim em pé estimulando as pernas, mas também pode acontecer de naturalmente o homem expelir/ejacular naturalmente durante as noites de sono talvez assin retirando a necessidade da masturbação. Mesmo nessa redução dos vícios, é importante não se viciar e nem se apegar a essas práticas, importante procurar a Deus para lhe transformar, pois para Deus nada é impossível.
 
 - A mulher, ao não ser preenchida com o amor de fato, praticando muitas vezes um sexo casual com o parceiro, fica na ânsia e angústia de algo que lhe falta, ansiando cada vez mais por algo forte, e nessa falta de preenchimento de um amor real que seria a geração de uma nova vida, ela se desnorteia com sexos cada vez mais exóticos, loucos e busca por adrenalina.
 
-- Masturbação (pensando em outra pessoa) ou visualização de pornografia dentro de um relacionamento pode (não afirmação) ser tido como algo sério, quase como uma traição. Necessário o casal ter uma conversa sobre coisas que um faz e aflige ao outro, entrarem em um consenso, e principalmente um não negar seu corpo ao outro.
+- Masturbação (pensando em outra pessoa) ou visualização de pornografia dentro de um relacionamento pode ser tido como algo sério, quase como uma traição. Necessário o casal ter uma conversa sobre coisas que um faz e aflige ao outro, entrarem em um consenso, e principalmente um não negar seu corpo ao outro.
 
 - Quando a excitação profana vier, o sentir pode ser normal, mas não o consentir, não o permitir que perdure tais desejos.
 
-- Mas também seja lembrado ao solteiro que ainda não se desprendeu total dos desejos da carne, que uma ejaculação/masturbação de uma forma a aliviar o desejo e sem ser como vício, pode sim ser vista como um sacrifício se o intuito for evitar magoar alguém ao não se relacionar com uma pessoa movido a prazeres da carne, que na maioria dos casos termina em mágoa e sofrimento. Só vale lembrar como sempre em não se viciar, não dar espaço para a preguiça, gula e Luxúria/vaidades, fortalecer corpo com exercícios físicos; fortalecer a mente com trabalho e estudo; e fortalecer o coração com leitura do evangelho, caridade, jejum, oração, confissão e Eucaristia; e todos os atos sempre com humildade.
+- Mas também seja lembrado ao solteiro que ainda não se desprendeu total dos desejos da carne, que uma ejaculação/masturbação de uma forma a aliviar o desejo e sem ser como vício, pode sim ser vista como um sacrifício se o intuito for evitar magoar alguém ao não se relacionar de forma casual com uma pessoa movido a prazeres da carne, que na maioria dos casos termina em mágoa e sofrimento. Só vale lembrar como sempre em não se viciar, não dar espaço para a preguiça, gula e Luxúria/vaidades, fortalecer corpo com exercícios físicos; fortalecer a mente com trabalho e estudo; e fortalecer o coração com leitura do evangelho, caridade, jejum, oração, confissão e Eucaristia; e todos os atos sempre com humildade.
 
 - Tanto para homens quanto para mulheres o mais importante e acima de tudo, é não praticar atos que magoem o próximo, como sexos casuais, que podem fazer com que o outro tenha afeto (mulheres são muito afetivas), ou exponham a falta de lealdade (homens apesar de as vezes não serem afetuosos prezam pela lealdade).
 
@@ -2365,9 +2413,9 @@ Mateus 5
 
 Mateus 19
 
-1. Após esses discursos, Jesus deixou a Galileia e veio para a Judeia, além do Jor­dão.
+1. Após esses discursos, Jesus deixou a Galileia e veio para a Judeia, além do Jordão.
 2. Uma grande multidão o seguiu e ele curou seus doentes.
-3. Os fariseus vieram perguntar-lhe para pô-lo à prova: “É permitido a um homem rejeitar sua mu­lher por um motivo qualquer?”.
+3. Os fariseus vieram perguntar-lhe para pô-lo à prova: “É permitido a um homem rejeitar sua mulher por um motivo qualquer?”.
 4. Respondeu-lhes Jesus: “Não lestes que o Criador, no começo, fez o homem e a mulher e disse:
 5. Por isso, o homem deixará seu pai e sua mãe e se unirá à sua mulher; e os dois formarão uma só carne?*
 6. Assim, já não são dois, mas uma só carne. Portanto, não separe o homem o que Deus uniu”.
@@ -2446,6 +2494,21 @@ Tobias 6
 
 - A boca é para o beijo; mas o órgão genital não é para ser beijado; as mãos para estímulos e carícias; o órgão excretor apenas para excreção e não para penetração ou beijo. Assim se define um sexo limpo com higiene e não sujo, assim o beijo vira doce e não seco, assim o coração não se polui com desejos da carne, assim o sexo vira algo além da carne, sendo uma conexão espiritual de entrega de corpo e alma, assim se faz o sexo com penetração, beijo, paixão e desejo, tudo ao mesmo tempo e em grande intensidade.
 
+<!-- TOC --><a name="cúmulo-da-putaria-e-safadeza"></a>
+##### Cúmulo da putaria e safadeza
+
+- Quando você ver um homem ou mulher preenchendo a carência social, afetiva e sexual com três pessoas diferentes pode ter certeza que ali é casa de Satanás:
+
+  1- O homem vai ter a sua esposa/namorada para a carência afetiva/emocional e conforto do lar, uma amante para carência sexual e amigos de bar para carência social.
+
+  2- A mulher vai ter seu marido/namorado para carência afetiva/emocional e conforto do lar, um amante para carência sexual, e um amigo gay ou amiga de segredos para carência social.
+
+- Se seu relacionamento é baseado em carência ele já está com os dias contados, ou já acabou a muito tempo e hoje está só a fachada do que parece ser mas não é.
+
+- O Amor gera companhia, afeto e sexo, mas Amor existe antes dessas coisas serem demonstradas, pois ele é a fonte do bem não o contrário, não é a companhia, afeto ou sexo que gera o Amor, mas sim o contrário. De tal modo que por Amor nem sempre você vai proporcionar um desses três, mas quando é Amor não se apaga do coração, aconteça o que acontecer, é algo que não é de nós mesmo mas de Cristo habitando em nós.
+
+- Necessário como sempre saber mortificar na Cruz as relações mundanas e ressuscitar em Cristo (A rocha) este mesmo relacionamento, que agora não é mais o mesmo pois agora é outro em Espírito.
+
 <!-- TOC --><a name="reflexão-da-história"></a>
 ##### Reflexão da história
 
@@ -2473,7 +2536,7 @@ Tobias 6
 
 - Para o Homem, ou seja bom de verdade tendo fé em Deus, ou seja a maldade pura, sem piedade, sem sentimentalismo, não seja morno, no mínimo grato a Deus. Cuidado, se você for morno, cuidado com a garota carente e de voz doce, mas que se percebe que sua base de princípios são apenas felicidades momentâneas movidos a impulsos e desejos passageiros.
 
-- Para a mulher, cuidado com o homem que diz tudo o que você quer ouvir, mas não tem tanta fé em Deus, não é sobre a acreditar em Deus, mas sobre ter fé através da Alegria, esperança, paciência para gerar Amor a Deus.
+- Para a mulher, cuidado com o homem que diz tudo o que você quer ouvir, mas não tem tanta fé em Deus, não é sobre a acreditar em Deus, mas sobre ter fé através da Alegria, esperança, paz, as bases do Amor a Deus.
 
 - Ciclo da sociedade moderna no casamento: Homem/mulher jovens se relacionam, namoram por status e não para honrar a Deus, namoro pode durar alguns anos, ou até virar uma união estável (piada já vem pronta), obtém traumas, desacreditam do amor, decidem ir para bebidas, drogas e putaria para preencher vazios e ansiedades, e depois passam a ter o discurso não tem nada de bom no casamento. Mulheres passam a viver perambulando por carências movidas por impulsos e desejos, pessoas traumatizadas traumatizam outras, e homens se tornando cada vez mais frios e perguntando para que servem as mulheres se não tivessem uma vagina, e movido a impulsos e desejos continuam o ciclo de traumatizar outras. Aonde essa sociedade vai parar? Não sei exatamente, mas boa coisa num eh. Nessa briga entre homens e mulheres, um fato é verdade, quando for para chegar na força física, aí das mulheres(aí das grávidas).
 
@@ -3196,7 +3259,7 @@ Mateus 5
 
 43. Tendes ouvido o que foi dito: Amarás o teu próximo e poderás odiar teu inimigo.*
 44. Eu, porém, vos digo: amai vossos inimigos, fazei bem aos que vos odeiam, orai pelos que vos [maltratam e] perseguem.
-45. Deste modo sereis os filhos de vosso Pai do céu, pois ele faz nas­cer o sol tanto sobre os maus como sobre os bons, e faz chover sobre os justos e sobre os injustos.
+45. Deste modo sereis os filhos de vosso Pai do céu, pois ele faz nascer o sol tanto sobre os maus como sobre os bons, e faz chover sobre os justos e sobre os injustos.
 46. Se amais somente os que vos amam, que recompensa tereis? Não fazem assim os próprios publicanos?
 47. Se saudais apenas vossos irmãos, que fazeis de extraordinário? Não fazem isso também os pagãos?
 48. Portanto, sede perfeitos, assim como vosso Pai celeste é perfeito.”
@@ -3254,7 +3317,7 @@ João 3
 
 - Jesus/Deus/Pai ao assumir o papel de Cristo, mostra o caminho para a luz, para a purificação da alma, mostra que devemos colocar na Cruz o ego, o orgulho, desejos, apegos da matéria/carne, e o que muitos chamam de amor próprio, pois não foi por amor a si mesmo nem para se exaltar que o mesmo permitiu ser crucificado, mas por Amor a Deus e a nós, e dessa forma nos mostrando o caminho que devemos tomar mortificando nosso ego para nos curar de nossa podridão (também chamado de pecado) da alma e nos tornamos uma nova pessoa ressuscitando, nascendo novamente em espírito junto a Jesus Cristo através do Espírito Santo de Deus, em nome do Pai, Filho e Espírito Santo.
 
-- Para os irmãos que não seguem as doutrinas católica, a única que coisa peço (não é uma exigência, pois não mando em vós), é que não precisa se submeter a ordem papal, mas que preguem com o coração, não apenas lendo e interpretando, e compreendendo a palavra, nem apenas entendendo o contexto, mas também sentindo de coração, não é com medo de pecar que se deve pregar, ou com medo de perder fiéis, ou com medo de serem taxados de uma igreja católica sem papa. Que mal teria em pregar as mesmas coisas de uma Igreja, que sim já teve (ou tem) membros que erraram no passado, mas que mantém grandes valores de amor de Cristo ? Vigiem vossos corações pois daí virá as vontades de Deus, através de alegria, esperança, paciência gerando o Amor da graça de Deus, pois o que é do medo, tristeza, raiva, ódio provém do maligno.
+- Para os irmãos que não seguem as doutrinas católica, a única que coisa peço (não é uma exigência, pois não mando em vós), é que não precisa se submeter a ordem papal, mas que preguem com o coração, não apenas lendo e interpretando, e compreendendo a palavra, nem apenas entendendo o contexto, mas também sentindo de coração, não é com medo de pecar que se deve pregar, ou com medo de perder fiéis, ou com medo de serem taxados de uma igreja católica sem papa. Que mal teria em pregar as mesmas coisas de uma Igreja, que sim já teve (ou tem) membros que erraram no passado, mas que mantém grandes valores de amor de Cristo ? Vigiem vossos corações pois daí virá as vontades de Deus, através de alegria, esperança, paciência bases do Amor da graça de Deus, pois o que é do medo, tristeza, raiva egoísta, ódio provém do maligno.
 
 - Aos que não acreditam na Santidade é porque não acreditam em Cristo nem no que o mesmo pediu: "Sedes Santos porque eu sou Santo". Não acreditam na Santidade do irmão pois invejam os que conseguem ser Santos, pois ao invés de terem fé em Cristo na Santificação assim como vossos irmãos, ao invés de reconhecerem o quanto são miseráveis e pedirem ajuda a Cristo para se Santificar, pois para Deus nada é impossível, ao invés de se Santificarem preferem ficar em seu orgulho condenando a si mesmos no apego ao pecado e do sofrimento.
 
@@ -3320,13 +3383,13 @@ Mateus 20
 
 - O purgatório, é um estado aonde a alma poderá sofrer tanto quanto no inferno, dependendo dos apegos materialistas que teve em vida, mas existem luzes a servirem de portais para aquela alma se libertar, mas irão precisar superar seus medos profundos não superados em vida, os apegos terrenos, os pecados capitais que ainda perduraria. Uma alma no purgatório não morre em vida física com pecado mortal, mas também não existe garantias de saída do labirinto que é o purgatório, pois ela tem de escolher verdadeiramente amar a Deus e consequentemente ao próximo. 
 
-- O inferno é um estado de completa ausência de Deus(Luz), é para quem conscientemente escolheu o mal, é para quem conscientemente tendo noção das consequências do mal que fazia ao próximo continuou sem arrependimento verdadeiro, veja que é uma questão de consciência, se você rouba e não tem noção do mal que fez ao próximo, seria no máximo um purgatório. Mas para quem tem o prazer, o desejo, que faz por maldade conscientemente, e morre fisicamente neste estado, é alguém que já estava totalmente morto por dentro, pois estava com a alma ainda negra e manchada de pecados mortais (conscientemente fazendo o que não devia), que por escolha ou talvez falta de oportunidade (ausência de um guia de luz) não se mortificou nos pecados para Ressuscitar em Cristo ainda em vida física (veja como a morte aqui tem um sentido diferente). Para ainda em vida física purificar a alma que está em pecados mortais, é preciso um confessionário e um arrependimento verdadeiro.
+- O inferno é um estado de completa ausência de Deus(Luz), é para quem conscientemente escolheu o mal, é para quem conscientemente tendo noção das consequências do mal que fazia ao próximo continuou sem arrependimento verdadeiro, veja que é uma questão de consciência, se você rouba e não tem noção do mal que fez ao próximo, seria no máximo um purgatório. Mas para quem tem o prazer, o desejo, que faz por maldade conscientemente e egoísmo, morrendo fisicamente neste estado, é alguém que já estava totalmente morto por dentro, pois estava com a alma ainda negra e manchada de pecados mortais (conscientemente fazendo o que não devia), que por escolha ou talvez falta de oportunidade (ausência de um guia de luz) não se mortificou nos pecados para Ressuscitar em Cristo ainda em vida física (veja como a morte aqui tem um sentido diferente), e quando morre fisicamente se depara com seu próprio corpo e alma mortos, olhando para sua própria cena de assassinato (toda a sua consciência pesada e energias ruins que carregava no coração) foge para longe da luz, sendo tomado por medo, ódio, orgulho e procurando formas de se justificar. Para ainda em vida física purificar a alma que está em pecados mortais, é preciso um confessionário e um arrependimento verdadeiro.
 
 - Uma alma que vai para o inferno é uma alma sem luz, sem esperança, em que passará a ter os seus medos mais sombrios e profundos lhe atormentando no lugar de morte eterna, e se você não se lembrar, fique tranquilo que existirá outros espíritos das trevas (demônios) para lhe lembrar e sugar(devorar) o restante de energia(vida) espiritual que restar na sua alma, eles sugam através do medo, tristezas e raivas, ansiedades (medo em um nível maior), que os mesmos irão sentir ou até provocar em sua alma, por isso a necessidade de aceitar a morte em paz, para que ao morrer tenha colhido e guardado na mente e principalmente coração as coisas de Deus (humildade, alegria, esperança, paz, penitência/dor, as bases do Amor de Deus), e que ao serem provados pelo fogo, não serão devorados.
 
-- O maior problema em morrer com o peso na consciência e não conseguir se elevar, é que vai ter outros espíritos para lhe fazer companhia, alguns deles vão ser como você almas penadas, outros são Espíritos malignos antigos, que vão lhe devorar, lhe sugar o resto de energia Espiritual que você tem, e isso independe do seu estado de inferno ou purgatório, no purgatório talvez só não tenha tantos demônios constantemente pela presença dos anjos que afugentam os mesmos. Esses espíritos das trevas vão lhe sugar lhe atormentando com palavras, zombarias, provocação, lhe conhecem tão bem, até mais do que você mesmo (isso para quem nunca meditou), você terá medo, e ele sobrevive sugando sua energia de medo, você terá tristeza e ele sobrevive sugando essa tristeza, você terá raiva e ele vai adorar, você vai xingá-lo e ele irá dizer: "sou mesmo", e quanto mais raiva você tiver, mais vai ser sugado, você não vai conseguir calar a boca dele, você não pode conseguir toca-lo pois espírito são imateriais, e para quem acha que palavras machucam, não suportar provocação e já se tomam de raiva e angústias, vocês são um prato gordo e cheio para serem devorados.
+- O maior problema em morrer com o peso na consciência e não conseguir se elevar, é que vai ter outros espíritos para lhe fazer companhia, alguns deles vão ser como você almas penadas, outros são Espíritos malignos antigos, que vão lhe devorar, lhe sugar o resto de energia Espiritual que você tem, e isso independe do seu estado de inferno ou purgatório, no purgatório talvez só não tenha tantos demônios constantemente pela presença dos anjos que afugentam os mesmos. Esses espíritos das trevas vão lhe sugar lhe atormentando com palavras, zombarias, provocação, lhe conhecem tão bem, até mais do que você mesmo (isso para quem nunca meditou), você terá medo, e ele sobrevive sugando sua energia de medo, você terá tristeza e ele sobrevive sugando essa tristeza, você terá raiva e ele vai adorar, você vai xingá-lo e ele irá dizer: "sou mesmo", e quanto mais raiva você tiver, mais vai ser sugado, você não vai conseguir calar a boca dele, você não pode conseguir toca-lo pois espírito são imateriais, e para quem acha que palavras machucam, não suporta provocação e já se tomam de raiva e angústias, vocês são um prato gordo e cheio para serem devorados.
 
-- Um ateu dificilmente vai conseguir morrer em paz, pois o que é um ateu se não um profundo ódio soberbo à algo que não compreende e acha injusto e ilógico, vendo muitos dos seus medos e temores acontecerem, nem Einstein se dizia ateu, mas acreditava em algo imensamente superior que não compreendia e não conseguia explicar, compreensivo da parte dele considerando que pouco se dedicou a isso e não teve tanta fé, e que talvez as circunstâncias da vida tenham lhe levado a pastores que só apascentavam a si mesmos. Se um ateu vai para inferno não posso afirmar, provavelmente a ignorância de consequências dos atos, descrença no incompreensível junto a boas intenções não tão egoístas lhe levem ao estado de purgatório, mas sem a certeza que o mesmo saia desse labirinto.
+- Um ateu dificilmente vai conseguir morrer em paz, pois o que é um ateu se não um profundo ódio soberbo à algo que não compreende e acha injusto e ilógico, vendo muitos dos seus medos e temores acontecerem, nem Einstein se dizia ateu, mas acreditava em algo imensamente superior que não compreendia e não conseguia explicar, compreensivo da parte dele considerando que pouco se dedicou a isso e não teve tanta fé, e que talvez as circunstâncias da vida tenham lhe levado a pastores que só apascentavam a si mesmos. Se um ateu vai para o inferno não posso afirmar, provavelmente a ignorância de consequências dos atos, descrença no incompreensível junto a boas intenções não tão egoístas lhe levem ao estado de purgatório, mas sem a certeza que o mesmo saia desse labirinto.
 
 - É uma ilusão grande também, achar que purgatório é sinônimo de algum tipo de 'paz' ou 'salvação' mediante uma penitência pessoal. A negligência e arrogância em dizer: "tudo bem ir pro purgatório pois pelo menos não vou estar no inferno" com profunda presunção, preguiça, comodismo ou arrogância de achar que vai sair de lá com absoluta certeza não é uma linha de pensamento de luz, mas sim da ausência da luz, cuidado, se você conscientemente faz o que sabe que não devia conhecendo a Deus de coração, e mesmo assim decidem amar mais aos prazeres egoístas do mundo que atormentam ao próximo, por mais que o próximo não vale uma moeda e supostamente você só estaria dando o troco, prefere esses tipos de prazeres do que Amar a Deus e carregar sua cruz, e fazem essa escolha sem arrependimento nenhum, pois deposita sua fé na segunda chance e não em Deus, aqui você está conscientemente escolhendo trilhar um caminho de auto condenação pela negligência, preguiça, arrogância ou até orgulho, mesmo que seja uma condenação eterna ao purgatório mediante sua própria escolha, e com certeza está mais perto de escolher o que se chama inferno (ausência de Deus) do que do céu, e para ti, antes que o tal dia do senhor chegue, é bom um confessionário verdadeiro, pois nunca se sabe o dia de amanhã.
 
@@ -3339,7 +3402,7 @@ https://www.vaticannews.va/pt/igreja/news/2018-04/papa-francisco-teologia-infern
 <!-- TOC --><a name="seria-possível-uma-alma-sair-do-inferno-para-o-purgatório-"></a>
 #### Seria possível uma alma sair do inferno para o purgatório ?
 
-- Com exceção do todo poderoso Senhor Jesus Cristo (Deus), consideraria impossível, pois o inferno é uma escolha/opção do livre arbítrio e por isso o inferno sempre vai existir, pois o inferno é para quem diz não a Deus(Luz) conscientemente em vida. Os motivos para alguém escolher o inferno e permanecer lá podem ser vários, para os espíritos de sabedoria e conhecimento das trevas como demônios e Satanás, o orgulho (falta de humildade) é um dos motivos pois eles não gostam de serem humilhados (algo necessário para a purificação), mas tem outros motivos como o medo, a desesperança, a preguiça/comodismo pois satanás e os demônios se sentem confortáveis aonde estão (praticando o pecado), já para as almas atormentadas é a prisão mental(consciência) e do coração no momento da morte que os próprios demônios usam para atormentar e manipular as almas com uma consciência cheia de culpa, de desesperança, sem saber para onde ir, e com verdades tão negras que de fato a vergonha, a culpa, orgulho, a falta de perseverança em penitências fazem com que seja impossível sair de lá, pois se já não existe garantias de sair do purgatório mesmo com uma esperança pequena, imagine para quem morre em uma estado de completa desesperança, culpa, ódio, orgulho, entre outras coisas negras ?
+- Com exceção do todo poderoso Senhor Jesus Cristo (Deus), consideraria impossível, pois o inferno é uma escolha/opção do livre arbítrio e por isso o inferno sempre vai existir, pois o inferno é para quem diz não a Deus(Luz) conscientemente em vida. Os motivos para alguém escolher o inferno e permanecer lá podem ser vários, para os espíritos de sabedoria e conhecimento das trevas como demônios e Satanás, o orgulho (falta de humildade) é um dos motivos pois eles não gostam de serem humilhados (algo necessário para a purificação), mas tem outros motivos como o medo, a desesperança, a preguiça/comodismo pois satanás e os demônios se sentem confortáveis aonde estão (praticando o pecado), já para as almas atormentadas é a prisão mental(consciência) e do coração no momento da morte que os próprios demônios usam para atormentar e manipular as almas com uma consciência cheia de culpa, medo, desesperança, sem saber para onde ir, e com verdades tão negras que de fato a vergonha, a culpa, medo, orgulho, raiva/ódio, a falta de perseverança em penitências fazem com que seja impossível sair de lá, pois se já não existe garantias de sair do purgatório mesmo com uma esperança pequena, imagine para quem morre em uma estado de completa desesperança, culpa, medo, ódio, orgulho, entre outras coisas negras ?
 
 <!-- TOC --><a name="mas-deus-é-misericordioso-e-todo-poderoso-ele-pode-nos-salvar"></a>
 #### Mas Deus é misericordioso e todo poderoso, ele pode nos salvar?
@@ -4749,7 +4812,7 @@ Mateus 4
 
 - Haverá subida e haverá queda, ciclos de morte e ressurreição. Até para ele. Mas o senhor não será ele e sim Deus.
 
-- Talvez essa palavras estejam incompletas e precisem de um refinamento, talvez sejam as próprias trevas manipulando a pureza. Para saber se o refinamento está certo, vigia-te o teu coração, veja se tem medo. Se fores como um pequenino na alegria, esperança(ao invés de medo) e amor, provavelmente não estarás errando, pois ninguém é mais poderoso e sábio que Deus. Ele sabe de tudo, e provavelmente sabia que o inimigo plantaria joio.
+- Talvez essa palavras estejam incompletas e precisem de um refinamento, talvez sejam as próprias trevas manipulando a pureza. Para saber se o refinamento está certo, vigia-te o teu coração, veja se tem medo. Se fores como um pequenino na alegria, esperança(ao invés de medo), paz/paciência e amor, provavelmente não estarás errando, pois ninguém é mais poderoso e sábio que Deus. Ele sabe de tudo, e provavelmente sabia que o inimigo plantaria joio.
 
 - Ele não enxerga mais o pai, ele está perdido nas suas próprias trevas, o pai sente a falta dele, mas ele deve renunciar a si e parar de causar tanto sofrimento. Ele precisa de nós, pois ele nos enxerga, ele precisa ver a luz de Deus refletida em nós, para encontrar o caminho de volta, pois ele não consegue enxergar mais diretamente a luz de Deus. Ele precisa enxergar que Deus também o ama apesar de tudo, mas será preciso um ciclo imenso de morte e ressurreição dos pecados.
 
@@ -5030,7 +5093,7 @@ Gálatas 3
 <!-- TOC --><a name="alerta-ou-crítica-ao-misticismo-espiritualismo-budismo-e-demais-práticas-religiosas"></a>
 #### Alerta ou crítica ao misticismo, Espiritualismo, Budismo e demais práticas religiosas
 
-- Amados, longe de mim dizer qual a religião correta, pois todos somos filhos de Deus, mas o Deus verdadeiro é o Deus dos corações e da verdade. Mas alerto que muitos usam ensinamentos da espiritualidade nas mais diferentes denominações religiosas e não percebem quando são manipulados por Espíritos malignos, e assim deixam habitar em seu coração a malícia, o falso amor. O budismo, e muitas denominações religiosas, como qualquer uma, até o próprio Cristianismo, da mesma forma que podem ser usados para aliviar a alma para encontrar a luz, infelizmente também acabam sendo usados para encontrar equilíbrio nas trevas e assim persuadir a outros. Para distinguir as coisas do bem e do mal devemos olhar para nossos corações e na humildade deixar crescer a Alegria, esperança e paz, bases do Amor de Deus, não devemos ter desprezo, medo, tristeza, raiva, angústias e ansiedades.
+- Amados, longe de mim dizer qual a religião correta, pois todos somos filhos de Deus, mas o Deus verdadeiro é o Deus dos corações e da verdade. Mas alerto que muitos usam ensinamentos da espiritualidade nas mais diferentes denominações religiosas e não percebem quando são manipulados por Espíritos malignos, e assim deixam habitar em seu coração a malícia, o falso amor. O budismo, e muitas denominações religiosas, como qualquer uma, até o próprio Cristianismo, da mesma forma que podem ser usados para aliviar a alma para encontrar a luz, infelizmente também acabam sendo usados para encontrar equilíbrio nas trevas e assim persuadir a outros. Para distinguir as coisas do bem e do mal devemos olhar para nossos corações e na humildade deixar crescer a Alegria, esperança e paz, bases do Amor de Deus, não devemos ter desprezo, medo, tristeza, raiva egoísta, angústias e ansiedades.
 
 <!-- TOC --><a name="palestina-jerusalém"></a>
 #### Palestina - Jerusalém
@@ -6785,7 +6848,6 @@ https://youtu.be/SDDpVlsOq9g?si=HjuuYhSwUTLJY5pn
 - Link Ascendente:
 https://www.horoscopovirtual.com.br/artigos/qual-o-seu-signo-ascendente
 
-
 - Hipótese baseado em estatística: Os signos demonstram de certa forma as tendências comportamentais que os indivíduos tendem a desenvolver. Quanto mais longe de Deus, longe da Santidade estão as pessoas, mais elas irão desenvolver as vaidades de seus signos, adorando mais suas próprias vaidades e prazeres, adorando mais ao Sol do que ao próprio Deus criador do Sol, justificando atos vaidosos dirão: "tenho esse defeito pois sou do signo X, Y, Z". Deus lhe deu dons, habilidades, virtudes e defeitos, mas também lhe pediu para adorar a Deus e seguir os ordenamentos do mesmo, e não adorar ao sol, e nem mesmo a lua, apenas se deve apreciar a imensa engenharia divina e cósmica de Deus.
 
 - Exemplos: Leão o orgulho, Áries a fúria, Gêmeos e Aquário frieza, egoísmo e ganância na busca de conhecimento e poder. Touro e Capricórnio, apego a coisas materiais medo de perder. Câncer e peixes o apego excessivo as pessoas causando ciúmes, guardando mágoa e não perdoando.
@@ -6835,40 +6897,6 @@ Essa passagem ressalta a interconexão entre o comportamento humano e a ordem c�
 Exemplos de Djavu:
 
 - Comigo foi mais algo como: fulano falava algo e de repente eu tinha uma visão de 2 segundos de algo caindo como um copo, e ia lá e caia o copo logo em seguida. Outro exemplo foi uma faca que caia no chão e antes de acontecer eu já via uma pessoa chamando no portão, aí 2 segundos depois alguém chamava no portão.
-
-<!-- TOC --><a name="a-queda"></a>
-#### A queda
-
-"
-Adão e Eva, como os primeiros humanos, geraram a humanidade inteira. Seus filhos, Caim e Abel, são as figuras mais conhecidas, mas a Bíblia também menciona outros filhos e filhas (Gênesis 5:4). A linhagem que deu origem ao povo de Israel começa com Sete, filho de Adão, que é mencionado como o ancestral de Noé, de quem descendem os hebreus.
-
-Após o dilúvio, a linhagem se torna mais específica com Noé e seus filhos: Sem, Cam e Jafé. A partir de Sem, surgem os hebreus, incluindo Abraão, que é considerado o pai do povo de Israel. Por outro lado, os descendentes de Cam e Jafé, muitas vezes vistos como as nações estrangeiras, representam os povos que não pertencem à linhagem de Abraão.
-
-Portanto, a distinção entre os filhos de Israel e os estrangeiros remonta a essas linhagens e à história de suas famílias ao longo das gerações.
-"
-
-- Após matar Abel, Caim foi confrontado por Deus e recebeu um castigo. Ele foi condenado a vagar como um fugitivo e errante na terra. Deus também colocou um sinal sobre Caim para protegê-lo, garantindo que ninguém o matasse (Gênesis 4:15). Caim então se estabeleceu na terra de Node, a leste do Éden, onde construiu uma cidade e teve filhos, continuando sua linhagem.
-
-Gênesis 5
-
-1. Este é o registro da descendência de Adão: Quando Deus criou o homem, à semelhança de Deus o fez;
-2. homem e mulher os criou. Quando foram criados, ele os abençoou e os chamou Homem.
-3. Aos 130 anos, Adão gerou um filho à sua semelhança, conforme a sua imagem; e deu-lhe o nome de Sete.
-4. Depois que gerou Sete, Adão viveu 800 anos e gerou outros filhos e filhas.
-
-- Se adão e Eva entenderam que estavam nus, é porque eles transaram então? Provavelmente após comerem da árvore do conhecimento, Eva e Adão tiveram uma relação íntima deturpada, mas antes de comer do fruto já tinham relação íntima, mas não em pecado com um sexo deturpado. Após isso tiveram um sentimento de culpa, por desobedecerem a Deus. E viram que seus órgãos genitais estavam diferentes, e então decidiram se esconder do senhor. Mas o sexo por si só é uma dádiva de Deus, mas foi corrompido ao ser praticado em desobediência, isto é tão verdadeiro que ao fazer sexo em desobediência você se sente culpado, mas ao fazê-lo já com bençãos, você não sente culpa.
-
- - As árvores são neurônios da mente.
-
-Sinapses
-
-Referência: 
-
-https://brasilescola.uol.com.br/o-que-e/biologia/o-que-e-sinapse.htm
-
-https://www.uol.com.br/vivabem/noticias/redacao/2022/05/30/sexo-humor-sono-estresse-entenda-o-que-sao-e-papel-dos-neutransmissores.htm
-
-https://www.todamateria.com.br/sinapses/
 
 <!-- TOC --><a name="relação-com-a-sociedade"></a>
 #### Relação com a sociedade
@@ -7254,7 +7282,7 @@ https://www.espacojames.com.br/?cat=85&id=8387
 <!-- TOC --><a name="predestinação"></a>
 #### Predestinação 
 
-- A predestinação é real, não porque você não tem escolha, mas a predestinação é real porque cargos e posições precisam ser ocupados, cada posição ocupado ao longo da história. O que parece que foi predestinado para mim, eu não gostaria de ocupar, seja alto ou seja baixo, seja de glória ou não, antes de toda essa recompensa, ao qual eu não almejo, pois me satisfaço com o básico, antes de todas essa glória vem o peso da cruz, o peso do cargo e toda a dor de se comprometer de corpo e alma. Olho ao redor e vejo que ninguém ocupa, o senhor olha para mim e diz: "é você que tem de ocupar e sabe disso, eu preciso de você", e eu relutante olho para o lado e digo: "não é possível, ninguém mais se preparou ?". Olho para o lado, vejo e digo: "olhe lá tem um que consegue além de mim", e o senhor diz: "ele já tem o cargo dele, eu preciso de alguém aqui nesta posição". E eu digo: "eu não sei se consigo, sou miserável", me afasto do cargo, tento seguir fazendo o básico que para outros é um peso, mas que para mim é leve, e novamente me aparece aquele cargo pesado, algo que tem de ser feito, e eu pergunto: "de novo isso, eu já não fiz o bastante?", e nada me responde, e novamente me aparece o cargo, e eu penso: "é muita honraria, nem me vejo como capaz, devo eu estar enganado". E mais uma vez aparece, e então eu assumo aquela cruz, seguindo os passos do próprio senhor, pois para mim vai pesar, mas para outros parece que nem levanta, mas com a força do senhor aquela cruz eu carrego, cambaleando e tropeçando, mas carrego.
+- A predestinação é real, não porque você não tem escolha, mas a predestinação é real porque sem Deus o homem é predestinado ao pecado e consequentemente a morte da alma, e com Deus predestinado a vida, real porque cargos e posições precisam ser ocupados, cada posição ocupado ao longo da história. O que parece que foi predestinado para mim, eu não gostaria de ocupar, seja alto ou seja baixo, seja de glória ou não, antes de toda essa recompensa, ao qual eu não almejo, pois me satisfaço com o básico, antes de todas essa glória vem o peso da cruz, o peso do cargo e toda a dor de se comprometer de corpo e alma. Olho ao redor e vejo que ninguém ocupa, o senhor olha para mim e diz: "é você que tem de ocupar e sabe disso, eu preciso de você", e eu relutante olho para o lado e digo: "não é possível, ninguém mais se preparou ?". Olho para o lado, vejo e digo: "olhe lá tem um que consegue além de mim", e o senhor diz: "ele já tem o cargo dele, eu preciso de alguém aqui nesta posição". E eu digo: "eu não sei se consigo, sou miserável", me afasto do cargo, tento seguir fazendo o básico que para outros é um peso, mas que para mim é leve, e novamente me aparece aquele cargo pesado, algo que tem de ser feito, e eu pergunto: "de novo isso, eu já não fiz o bastante?", e nada me responde, e novamente me aparece o cargo, e eu penso: "é muita honraria, nem me vejo como capaz, devo eu estar enganado". E mais uma vez aparece, e então eu assumo aquela cruz, seguindo os passos do próprio senhor, pois para mim vai pesar, mas para outros parece que nem levanta, mas com a força do senhor aquela cruz eu carrego, cambaleando e tropeçando, mas carrego.
 
 - Diferença de trabalhar por obrigação, vocação e paixão.
 
