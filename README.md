@@ -3104,7 +3104,7 @@ Tiago 5
 
 - Os pecados que mais deves confessar, e talvez em seus detalhes, são aqueles que você mais se envergonha que outras pessoas saibam, e volta e meia você volta a comete-los, como assassinatos, roubos/furtos, avareza, inveja, sabotagem, adultérios, fornicação, incestos, fornicação entre parentes, irmãos, primos, tia(o), sogras(os), noras/genros, pai/mãe, desejos adúlteros, desejos de fornicação, desejos de incesto, desejos de assassinato, desejos do ódio, estupros, pedofilias.
 
-- Algumas situações comum de quem se confessas volta a cair no mesmo pecado/erro:
+- Algumas situações comum de quem se confessa e volta a cair no mesmo pecado/erro:
 
     - 1- Se reconhecem pecadores mas não encontram forças para se livrar do pecado, então preferem se afastar por completo de Deus e do confessionário, e viver os prazeres da carne, mas não percebem que não está sendo livre mas sim escravo dos próprios desejos.
     - 2- Continuam indo no confessionário e repetidamente cometendo os mesmos pecados, de tal forma que não perdoam mais a si mesmos.
@@ -3452,12 +3452,14 @@ Mateus 5
 
 https://www.vatican.va/archive/compendium_ccc/documents/archive_2005_compendium-ccc_po.html
 
-- Na prática o purgatório é como uma alma penada com uma certa porcentagem de luz que não 100% e por isso que não se elevou aos céus, pelas sua próprias escolhas, pois ainda quer degustar prazeres terrenos, essa alma/espírito vaga pela terra procurando momentos para entrar em corpos humanos e degustar prazeres que ainda tenham tido em vida, como bebidas, drogas, fofocas, intrigas, brigas, podem até começar a induzir as pessoas a fazer pecados muito mais pesados como sexo, roubo, assassinatos, e aqui nesse momento estão se condenando ao inferno dependendo da auto consciência de escolha para o mal, pois nesse momento os demônios que atormentam se tornam mais fortes em manipular vossas almas no purgatório.
+- Na prática o purgatório é como uma alma penada com uma certa porcentagem de luz que não 100% e por isso que não se elevou aos céus, pelas sua próprias escolhas, pois ainda estar prezo a coisas terrenas, essa alma/espírito pode talvez perambular pela terra procurando momentos terrenos em suas prisões mentais e do coração, devendo ainda se purificar ou aprender a tal para se libertar, provavelmente não chega a ser sofrível como o inferno pela presença de anjos que afugentam os demônios para longe, pois estas alma desejam a Deus e não rejeitam por completo as coisas de Deus, mas não compreende por completo o reino do Céus.
 
 <!-- TOC --><a name="possessãohabitação"></a>
 #### Possessão/Habitação
 
 - Para um ser de carne que está vivo, deve se perguntar, uma alma ou espírito entra em meu corpo ? Sim, mais precisamente na sua mente, se você dar espaço para vícios, prazeres, apegos materialistas, pois quando você está na prática desse atos, você não está no consciente, mas sim no inconsciente que é onde habita esses espírito impuros e que degusta os prazeres dos atos praticados. Não está no consciente, pois se você parar para pensar, o vício seja lá qual for (bebidas, sexo, drogas, trabalho, dinheiro, etc) torna o ato praticado tão automático que você nem chega mais de fato a sentir/degustar as minúcias dos prazeres, ou por ser tão automático como o respirar, é que digo que não é da nossa consciência mas de um inconsciente de um espírito imundo viciado nesses prazeres que você deu espaço para entrar.
+
+- Os espirítos/almas entram em corpos humanos para degustar prazeres como bebidas, drogas, fofocas, intrigas, brigas, podem até começar a induzir as pessoas a fazer pecados muito mais pesados como sexo, roubo, assassinatos, e aqui nesse momento estão se condenando ao inferno, pois nesse momento os demônios que atormentam se tornam mais fortes em manipular as almas.
 
 - Como se afastar desses espíritos imundos ( que podem até ser demônios se são Espíritos que não querem mais salvação e conscientemente escolheram o inferno )? Se você mantêm o auto controle, e não tem o vício, hábito recorrente desses prazeres, como por exemplo bebida alcoólica, mas não se embriaga nem torna a bebida rotineira, o espírito não vai ter gosto de entrar/habitar em você, pois você teria muito auto controle, o espírito vai lhe chamar de chato. Mas a bebida é um exemplo, multiplique por drogas, festas, gula(comer exageradamente), sexo, adultério, roubos, furtos, assassinato, poder, dinheiro, resumidamente tem espírito para cada pecado capital, e esses espíritos podem ser simples almas penadas do purgatório, almas condenadas conscientemente ao inferno, ou demônios.
 
