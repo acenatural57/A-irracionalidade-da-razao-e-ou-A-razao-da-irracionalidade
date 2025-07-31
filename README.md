@@ -78,6 +78,7 @@
       + [Consciência x Sonhos aos dormir](#consciência-x-sonhos-aos-dormir)
       + [Dos desejos estéticos ou performance materialistas](#dos-desejos-estéticos-ou-performance-materialistas)
       + [A dádiva da vida](#a-dádiva-da-vida)
+      + [A Graça do choro ](#a-graça-do-choro)
       + [Consciência, distração, Inquietação e desejos de barulho](#consciência-distração-inquietação-e-desejos-de-barulho)
       + [Zona de conforto ( escrever logo após vícios)](#zona-de-conforto-escrever-logo-após-vícios)
       + [Escolher a Escravidão](#escolher-a-escravidão)
@@ -91,6 +92,7 @@
          - [Maturidade: divisão homem x mulher](#maturidade-divisão-homem-x-mulher)
          - [Alívios ilusórios](#alívios-ilusórios)
          - [Sobre encontrar a pessoa certa](#sobre-encontrar-a-pessoa-certa)
+         - [Carências](#carências)
          - [Flerte](#flerte)
          - [Introvertido x Extrovertido](#introvertido-x-extrovertido)
          - [Beleza](#beleza)
@@ -129,6 +131,7 @@
       + [Medo de pecar](#medo-de-pecar)
       + [Estátua da Liberdade x Estátua de Jesus Cristo](#estátua-da-liberdade-x-estátua-de-jesus-cristo)
       + [Imagem x Idolatria](#imagem-x-idolatria)
+      + [Imagem de Cristo](#imagem-de-cristo)
       + [O louco amor de Deus](#o-louco-amor-de-deus)
       + [Batismo e nascimento](#batismo-e-nascimento)
       + [Confissão ](#confissão)
@@ -146,6 +149,7 @@
       + [Possessão/Habitação](#possessãohabitação)
       + [Magia negra](#magia-negra)
       + [Pecado](#pecado)
+      + [Pecado e Caridade](#pecado-e-caridade)
       + [Pecado original](#pecado-original)
       + [Pecados Mortais](#pecados-mortais)
       + [Outras doutrinas](#outras-doutrinas)
@@ -1041,6 +1045,8 @@ Lucas 17
 - A condenação nem é feita por Deus, mas pelo próprio homem que se auto condena em seu orgulho e egoísmo ao invés de escolher a misericórdia de Deus que exige que você largue tudo por Amor ao pai, pois para ter a misericórdia é preciso amar a Deus sobre todas as coisas.
 
 - Amar o próximo é deixar ir, ou pelo menos não forçar as pessoas a escolherem, não quer dizer também que você deve abandonar ou se fechar. Amar o próximo é deixar ir, mas estar sempre de braços abertos oferecendo o perdão, sem ressentimento ou mágoa. É ser grato a Deus pelos momentos e tempos que teve com aquela pessoa, e de forma ordeira aceitar que a mesma se foi e que você não venha a se perder na busca incessante por felicidade nos prazeres de si mesmo, pois seu primeiro Amor é Deus.
+
+- Quando se está em comunhão com Deus, se sente o amor do mesmo ao próximo, e quão extremo, doloroso e insuportável é amar alguém que não entende você e não confia em você. No fim, apenas um é compreensível, enquanto o outro apenas vive para satisfazer apenas a si mesmo.
 
 - Amar o próximo não pode ser algo do tipo "é a razão da minha vida", entendo que alguns podem dizer por força de expressão, mas devem todos se vigiar se por acaso profundamente não é uma verdade, pois se for, a sua alma ficará atormentada quando ver o outro partir ou sequer cogitar algo do tipo, pois o seu maior Amor deve ser Deus, não por egoísmo de Deus, mas porque é ele de fato a razão de tudo e o calmante da alma, e esse Deus que você pode achar egoísta, apenas não quer ver você sofrer (olha só o quanto ele lhe ama).
 
@@ -1978,6 +1984,11 @@ Mateus 10
 
 - Devemos manter a harmonia entre viver intensamente e com a verdade o hoje como se fosse nosso último dia sem arrependimentos e com humildade, e com a prudência de que se não for o último dia teremos as responsabilidades e consequências do amanhã.
 
+<!-- TOC --><a name="a-graça-do-choro"></a>
+#### A Graça do choro 
+
+- Como é bom chorar, como é bom estar vivo, como é bom sentir o bater e pulsar da vida. Não atoa a vida vem com choro, e que alegria é o nascimento de uma criança e seu choro, quanta alegria é a concepção da vida. Triste é quando se está tão morto por dentro que não existe razão de choro, porque não existe mais razão de estar vivo, a não ser a dopamina, o egoísmo e o alimentar do estômago.
+
 <!-- TOC --><a name="consciência-distração-inquietação-e-desejos-de-barulho"></a>
 #### Consciência, distração, Inquietação e desejos de barulho
 
@@ -2203,6 +2214,11 @@ I Coríntios 1
 
     - 1- mulher marmita: a mulher marmita muitas vezes é só uma namorada ou ficante (casual) para não ficarmos na seca (sem sexo), mas nunca pretendemos nos casar, o que acontece às vezes é um filho no meio da relação, que  obriga muitos a tentar fazer dar certo, o que explica a maioria de mães e pais solteiros, nesses casos o grande obstáculo é falta de humildade, castidade, Amor e fé em Deus para fazer dar certo algo que começou totalmente errado. A mulher marmita é nitidamente a mulher supérflua, soberba, orgulhosa, pomposa, sem humildade, em que a personalidade é praticamente insuportável, em que seu valor é baseado apenas na aparência, ideal para exibição entre os amigos, para status social, tipicamente uma namorada troféu, que assim que as rugas aparecem são descartadas por uma versão mais nova. Não é o homem que constrói essa mulher, ela mesma quem se coloca na prateleira dessa forma.
     - 2- mulher para casar: essa além da aparência, o homem olha principalmente a humildade, serenidade, lealdade, a questão singela, pode até ser impulsiva, emocionada e medrosa às vezes, o que é normal, mas com um auto controle, não agressividade e principalmente humildade(auto avaliação) para conversas difíceis, essenciais para uma boa convivência que dure de fato até a morte.
+
+<!-- TOC --><a name="carências"></a>
+##### Carências
+
+- Se esvaziem das coisas do mundo para serem preenchidos pelo Amor de Deus em seus corações, digam um não para o mundo e para você mesmo e passe a dizer um sim para Deus. Depois de ser preenchido por Deus pouco importa se você vai ter um parceiro(a) ou não, pois quem tem Deus já tem tudo, e quando aparecer alguém, o próprio Deus vai tocar seu coração e ele mesmo vai conceder um espaço para mais alguém em seu coração, para que você possa se doar para mais alguém assim como se doa para Deus, pois assim é o amor, serve sem esperar nada em troca, apenas serve.
 
 <!-- TOC --><a name="flerte"></a>
 ##### Flerte
@@ -3052,6 +3068,11 @@ I Samuel 8
 
 - Deus sabendo que o ser humano é carente e desejava ser grato pela vida, se fez carne para ser adorado pelo homem, não porque Deus precisava do homem, mas porque o homem em suas carências precisava ver a face de Deus, precisava ter uma lembrança em suas memórias do rosto de Deus, daquele que tudo lhe deu, e Deus bondoso e misericordioso deu ao homem o que ele pedia e precisava, deu um rei, ele mesmo que se fez carne, para ser adorado para todo o sempre pela carência do homem, que ao invés de suprir em Deus sua carência, acaba adorando outros Deuses.
 
+<!-- TOC --><a name="imagem-de-cristo"></a>
+#### Imagem de Cristo
+
+- A imagem de Jesus na Cruz morto, magro, chicoteado, humilhado, cuspido e cheio de sangue, o rei que se deixou diminuir, o rei que se compadeceu do perdido, do esquecido, é para lembrarmos que ele preferiu os pequenos, aqueles que não tem nada a oferecer a não ser o reconhecimento de suas misérias e verdadeiro arrependimento, humildade sem interesse, preferiu os miseráveis que se assumem como tal, do que aqueles que se achavam grandes mas eram miseráveis tanto quanto e não se reconheciam como pobres que são, pois a soberba da grandeza dos sábios, espertos, dos doutores, dos ricos, dos senhores e poderosos causou repulsa no Senhor. Mas também aí daqueles que se vitimizam com interesses por detrás, fingidores e interesseiros, que procuram estar ao lado de Cristo com objetivo apenas de serem servidos e salvos em uma zona de conforto, sem estar dispostos a carregar a sua cruz.
+
 <!-- TOC --><a name="o-louco-amor-de-deus"></a>
 #### O louco amor de Deus
 
@@ -3479,9 +3500,14 @@ https://www.vatican.va/archive/compendium_ccc/documents/archive_2005_compendium-
 
 - Não é suficiente apenas praticar bons valores e costumes, e evitar pecar simplesmente para agradar a Deus de forma rasa, pois muito deste caminho se vai pela moralidade, que de certo modo também tem seu valor, mas não adianta honrar a Deus apenas com a boca e com ações, mas é preciso também que seja com o coração, pois quando feito de coração, quando feito com Amor nada pesa. O pecado não é um egoísmo e desobediência à Deus porque supostamente você acha que Deus precisa de você, não é porque Deus quer ser adorado, o pecado é algo que lhe afasta dele, lhe afasta da luz e lhe leva às trevas, mesmo que ilusoriamente as trevas/pecado pareçam ser prazerosas, cedo ou tarde (infelizmente para alguns tarde demais) se percebe que só leva ao sofrimento, e tudo que Deus quer é apenas não ver você sofrer.
 
-- Pecado é a escolha pelo egoísmo de fazer algo para servir apenas a si mesmo, não pensando nas consequências ao próximo, esquecendo de agradecer a Deus, e no erro da prática do ato ainda se deixar levar pelo orgulho, não se arrepender, comparar-se aos outros pecadores para se justificar em suas misérias, e não pedir as devidas desculpas a Deus e ao próximo, não reconhecendo assim suas misérias. Na vivência do pecado, a alma apodrece, perde-se a luz e escurece, mesmo em vida física muitos estão mortos por dentro, até que se mortifiquem e ressuscitem em Cristo. 
+- Pecado é a escolha pelo egoísmo de fazer algo para servir apenas a si mesmo, não pensando nas consequências ao próximo, esquecendo de agradecer a Deus, e no erro da prática do ato ainda se deixar levar pelo orgulho, não se arrepender, comparar-se aos outros pecadores para se justificar em suas misérias, e não pedir as devidas desculpas a Deus e ao próximo, não reconhecendo assim suas misérias. Na vivência do pecado, a alma apodrece, perde-se a luz e escurece, mesmo em vida física muitos estão mortos por dentro, até que se mortifiquem e ressuscitem em Cristo.
 
 - Aí daqueles que morrem já estando mortos.
+
+<!-- TOC --><a name="pecado-e-caridade"></a>
+#### Pecado e Caridade
+
+- Praticar um pecado conscientemente, algo que alimenta o carnal, e em seguida praticar a caridade como tentativa de aliviar o mal feito, sem se arrepender do pecado, sem se reconhecer no pecado/erro, e sem tentar não pratica-lo mais, irá lhe matar ainda mais por dentro, até que se torne vazio e sem vida. Mas praticar um pecado consciente e depois praticar a caridade se reconhecendo como pobre e miserável, isto lhe dará um pouco de vida por dentro, mesmo que dolorosa no coração, pois você se dói por ver a você mesmo como um miserável, reconhecendo-se como tal e pedindo perdão, pois por mais que tente ainda tropeça.
 
 <!-- TOC --><a name="pecado-original"></a>
 #### Pecado original
