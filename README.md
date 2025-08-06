@@ -1919,6 +1919,8 @@ Lucas 19
 
 - Não é sobre não possuir bens, dinheiro ou possoe, mas sim sobre aonde estar o seu coração, que não deve amar mais ao dinheiro do que a Deus tornando-se assim avarento. Se tens bens, posses ou dinheiro, saiba que isto não é seu mas de Deus e que foi lhe delegado a cuidar disto para servir ao próximo e garantir o necessário para seu sustento.
 
+- Não é sobre trabalhar ou sobre adquirir bens, é sobre servir ao próximo. Uma árvore não cresce para dar frutos para ela mesma, mas para as demais criaturas ao redor.
+
 - A dosagem do remédio vai depender da gravidade da doença, e certas vezes o remédio é amargo como um açafrão (gengibre). Enquanto para um a dosagem era se desprender de tudo devido a gravidade da doença do apego ao dinheiro que sujava a alma, para outro o apego ao dinheiro não existia tanto, precisando assim deste apenas uma dosagem menor. Ser prudente com as coisas materiais não tem problema, pois é zelar o trabalho, mas não se pode justificar o coração avarento com a prudência exagerada em coisas terrenas e passageiras.
 
 <!-- TOC --><a name="consciência-x-sonhos-aos-dormir"></a>
