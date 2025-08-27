@@ -7293,7 +7293,7 @@ https://www.espacojames.com.br/?cat=85&id=8387
 <!-- TOC --><a name="minha-decisão"></a>
 #### Minha decisão 
 
-- Percebo que talvez meu egoísmo poderá levar ao sofrimento do mundo, que talvez a minha busca por felicidade verdadeira junto a Cristo em um matrimônio de homem e mulher não é o que Deus quer para mim, ele pede que eu ajude ele, percebo que minha escolha de matrimônio com uma mulher vai jogar todo trabalho feito fora, pois no dia que eu me casar com uma mulher, mesmo que o meu casamento desse certo, eu não seria feliz pois não consigo ignorar a infelicidade do próximo. Terei de ser menos egoísta e servir a Deus como ele quiser.
+- Percebo que talvez meu egoísmo poderá levar ao sofrimento do mundo, que talvez a minha busca por felicidade verdadeira junto a Cristo em um matrimônio de homem e mulher não é o que Deus quer para mim, ele pede que eu ajude ele, percebo que minha escolha de matrimônio com uma mulher vai jogar todo trabalho feito fora, pois no dia que eu me casar com uma mulher, mesmo que o meu casamento desse certo, eu não seria feliz pois não consigo ignorar a infelicidade do próximo. Terei de ser menos egoísta e servir a Deus como ele quiser, seja no matrimônio ou não.
 
 <!-- TOC --><a name="não-esquecer"></a>
 #### Não esquecer
