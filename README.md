@@ -2321,6 +2321,8 @@ Efésios 5
 
 - Se o estupro veio em uma mulher casada diante da Igreja, e em consequência do estupro se gerou um filho, o pai é o homem casado diante de Deus na Igreja, e o mesmo não deve rejeitar sua mulher. O estuprador deve se arrepender profundamente perante confessionário (morte espiritual), e deve ser perdoado e viver afastado e sem obrigação nenhuma para com a criança.
 
+- Em caso de total abandono por parte de um cônjuge por mais de anos, sem que o mesmo dê notícias, o abandonado já pode ter a si mesmo como viúvo(a), pois afinal como saber se o parceiro continua vivo ou morto ? No máximo pode-se dizer que quem abandona já está morto por dentro.
+
 - Mas aí daquela que se disser viúva não sendo viúva, mentindo e sendo fingida para encontrar um marido. Mas também aí daquele  ou daquela que não se disser casada, para tentar flertar com alguém.
 
 <!-- TOC --><a name="humildade-no-relacionamento"></a>
