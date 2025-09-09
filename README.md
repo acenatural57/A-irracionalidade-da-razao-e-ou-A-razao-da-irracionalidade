@@ -683,7 +683,7 @@ https://youtu.be/8GPPuoW4_3Y?si=xop1YW140uTbXGaE
 
 - A gnose é hipnótica, literaturas negras e sedutoras, conhecimento sedutores, ganância pelo saber, é a própria magia negra lhe tomando.
 
-- A gnose e busca pelo saber é um mal apartir do momento que é tomado pela ganância do saber, ou pela soberba de se aclamar sábio, inteligente, conhecedor, esperto; diferente da busca do conhecimento para servir a Deus e ao próximo, sem interesses escusos ou reconhecimento de alavancar a própria imagem/reputação.
+- A gnose e busca pelo saber é um mal a partir do momento que é tomado pela ganância do saber, ou pela soberba de se aclamar sábio, inteligente, conhecedor, esperto; diferente da busca do conhecimento para servir a Deus e ao próximo, sem interesses escusos ou reconhecimento de alavancar a própria imagem/reputação.
 
 <!-- TOC --><a name="mentiras-e-manipulações"></a>
 #### Mentiras e Manipulações
@@ -1181,12 +1181,12 @@ Mateus 5
 
 - Pois bem, agora veja um homem bom e justo que juntou dinheiro, e se viu no final do ano seu dinheiro ser roubado, dessa vez não por um ladrão comum e aparente, mas por algo nefasto, sombrio e obscuro que agiu de tal forma que não foi visto. Pois o homem tinha economizado 100 moedas e compraria 10 sacos de feijão, mas agora as 100 moedas não valem mais 10 sacos, e sim 7. O homem bom, talvez aceite com paciência essa primeira ocorrência, talvez trate com naturalidade, e dirá que faz parte, mas um dia, ou esse homem bom ou outro que observa irá dizer, tem algo de errado nisso, trabalhamos e trabalhamos, e nosso dinheiro parece que sempre é roubado. Em verdade seja dita, um dia esse homem irá reagir ao assalto e tomar algo de volta, mas a grande pergunta eh, de quem ele irá tirar ? Nos tempos atuais ao qual eu vivo, a própria sociedade levará a culpa, e como posso eu discordar ? Se por conivência, ignorância, preguiça ou até escolha, a própria sociedade elegeu aqueles que roubam o poder de compra. Como posso eu condenar o homem que agora decide transgredir a lei dos homens e as leis de Deus? Sendo que anteriormente eu não havia condenado aquele que reagiu a um assalto mais descarado. Pois bem, o ciclo de violência que começará assim, depois irá se espalhar de tal forma que ninguém mais saberá distinguir o certo do errado, ou errado do certo.
 
-- Mas em verdade seja dita, na dúvida devemos olhar para nossos corações, verificar se estamos sendo guiados pelo medo, tristeza, raiva egoísta, angústias, pois se estivermos devemos rapidamente mudar os rumos, pois nada de bom vem nisto. E se você parar para pensar o que havia no coração do homem que reagiu ao assalto, é a mesma sensação do homem que se sentiu roubado pela própria sociedade. Ah, mas não justifica. O que os seus olhos não vê o seu coração não sente. Mas quando vires a dor de ambos os irmãos, verá que apesar de circunstâncias diferentes, a dor a mesma.
+- Mas em verdade seja dita, na dúvida devemos olhar para nossos corações, verificar se estamos sendo guiados pelo medo, tristeza, raiva egoísta, angústias, pois se estivermos devemos rapidamente mudar os rumos, pois nada de bom vem nisto. E se você parar para pensar o que havia no coração do homem que reagiu ao assalto, é a mesma sensação do homem que se sentiu roubado pela própria sociedade. "Ah, mas não justifica". O que os olhos não vê o seu coração não sente. Mas quando vires a dor de ambos os irmãos, verá que apesar de circunstâncias diferentes, a dor é a mesma.
 
 <!-- TOC --><a name="perdão-e-ressentimento"></a>
 #### Perdão e ressentimento 
 
-Perdoar na hora, mas ter ressentimento de não mais aceitar ter contato com a pessoa por achar que ela não mudou, seja esse achismo certo ou errado. Deve-se seguir os passos do senhor Jesus e oferecer a outra face, não no sentido de provocador, mas sim no de não se importar em ser agredido novamente.
+- Perdoar na hora, mas ter ressentimento de não mais aceitar ter contato com a pessoa por achar que ela não mudou, seja esse achismo certo ou errado, deve-se seguir os passos do senhor Jesus e oferecer a outra face, não no sentido provocador, mas sim no de não se importar em ser agredido novamente. Mas sempre se mantendo fiel em defesa da verdade, mesmo as vezes com duras palavras, quando antes se tentou de maneira paciente ou gentil e não funcionou.
 
 <!-- TOC --><a name="reconciliação-em-casos-de-guerra-e-ameaças-de-morte"></a>
 #### Reconciliação em casos de Guerra e ameaças de morte
@@ -1199,10 +1199,12 @@ Mateus 5
 
 - Primeiro evoluir para o Espírito e tratar a morte como algo natural que se tiver de acontecer, tudo bem. Segundo tratar com prudência a reconciliação e não no imediatismo de querer o agora de qualquer jeito, se o agora for oportuno tudo bem, mas se não for, avaliar se seu irmão que tem algo contra ti pode acabar condenando a ele mesmo por sua imprudência em reconciliar-se em momento de fúria de seu irmão, necessário prudência na reconciliação para não condenar seu irmão quando o estiver em um estado que fará o mesmo agir em desobediência a Deus. Mas importante não deixar para depois também, mas sim buscar os meios mais sábios.
 
+- Caso o irmão negue completamente a Deus, não importa o que se faça o mesmo já fez a escolha dele, e você deve sempre se manter fiel à Deus e consequentemente a verdade, mesmo que tenha que se passar pela morte.
+
 <!-- TOC --><a name="sobre-dizer-não-à-escravidão-e-ao-ladrão"></a>
 #### Sobre dizer não à escravidão e ao ladrão 
 
-- Se for para continuar vivo como escravo e sendo guiado pelo medo da morte, muito melhor será dizer um não ao ladrão e encontrar a morte, pois assim você terá descanso nos braços de Deus, e o ladrão não terá mais ninguém para escravizar ou roubar. O ladrão aqui pode ser tanto o que lhe em termos de matéria, mas também e principalmente o lhe rouba em termo de alma e paz.
+- Se for para continuar vivo como escravo e sendo guiado pelo medo da morte, muito melhor será dizer um não ao ladrão e encontrar a morte, pois assim você terá descanso nos braços de Deus, e o ladrão não terá mais ninguém para escravizar ou roubar. O ladrão aqui pode ser tanto o que lhe rouba em termos de matéria, mas também e principalmente o lhe rouba em termo de alma e paz.
 
 - Se é o medo da morte o seu guia e não a vida, que vida você merece se não a de um pobre e miserável que vende a alma por migalhas ?
 
@@ -1960,7 +1962,7 @@ Lucas 19
 
 - Não pode um homem VICIADO em pornografia ou masturbação, ou sexo casual julgar-se melhor que uma mulher viciada em sexo ou que não consegue controlar os desejos sexuais e decide praticar sexo antes do casamento, diferente de um homem que consegue se saciar na masturbação a mulher não consegue se saciar com uma simples masturbação, e em muitos casos nem com o ato sexual casual. Ambos devem se julgar errados, pois ambos sedem às tentações da carne. 
 
-- Enfatizo aqui a questão do problema do vício e a prática constante ou minimamente diária de prazeres sexuais que devem ser evitadas, mas também reconheço a dificuldade de se livrar de tais vícios de ejaculação que acredito que talvez reduzindo aos poucos de uma à 2 vezes na semanas, para evitar acúmulo de esperma e dores testiculares, o que pode ser tratado com uma masturbação sem pornografia ou sem mentalização de sexo, apenas com o simples ato de estimular o órgão masculino (tente pensar em números ou contagem para tentar evitar de pensar em sexo), recomendo que essa masturbação não seja feito deitado ou sentado para não dar espaço para a preguiça, mas sim em pé estimulando as pernas, mas também pode acontecer de naturalmente o homem expelir/ejacular naturalmente durante as noites de sono talvez assin retirando a necessidade da masturbação. Mesmo nessa redução dos vícios, é importante não se viciar e nem se apegar a essas práticas, importante procurar a Deus para lhe transformar, pois para Deus nada é impossível.
+- Enfatizo aqui a questão do problema do vício e a prática constante ou minimamente diária de prazeres sexuais que devem ser evitadas, mas também reconheço a dificuldade de se livrar de tais vícios de ejaculação que acredito que talvez reduzindo aos poucos de uma à 2 vezes na semanas, para evitar acúmulo de esperma e dores testiculares, o que pode ser tratado com uma masturbação sem pornografia ou sem mentalização de sexo, apenas com o simples ato de estimular o órgão masculino (tente pensar em números ou contagem para tentar evitar de pensar em sexo), recomendo que essa masturbação não seja feito deitado ou sentado para não dar espaço para a preguiça, mas sim em pé estimulando as pernas, mas também pode acontecer de naturalmente o homem expelir/ejacular naturalmente durante as noites de sono talvez assim retirando a necessidade da masturbação. Mesmo nessa redução dos vícios, é importante não se viciar e nem se apegar a essas práticas, importante procurar a Deus para lhe transformar, pois para Deus nada é impossível.
 
 - A mulher, ao não ser preenchida com o amor de fato, praticando muitas vezes um sexo casual com o parceiro, fica na ânsia e angústia de algo que lhe falta, ansiando cada vez mais por algo forte, e nessa falta de preenchimento de um amor real que seria a geração de uma nova vida, ela se desnorteia com sexos cada vez mais exóticos, loucos e busca por adrenalina.
 
@@ -2449,6 +2451,23 @@ Mateus 19
 - Divórcio apenas em caso de fornicação (traição), exceto em caso de filho. Em caso de filho, não existe divórcio a não ser através da morte do PARCEIRO. Se houve traição e existe um filho, não deve haver divórcio até a morte do PARCEIRO, mas seria prudente morar separados, e um talvez não mais visitar o outro. Estarão casados mesmo morando separados, e se um tiver relação fora do casamento será adultério.
 
 - Quem tem filho com mais de uma pessoa já está morto, e os parceiros(as) são viúvos(as) com filho. Os parceiros(as) traídos não devem desejar nada vindo do que está morto, mas devem manter sua castidade pois o morto ainda está vivo em carne. Os filhos do morto podem sempre ver o pai. O morto deve se mortificar em seu pecado e ressuscitar em Cristo e viver como viúvo(a), mas reconhecendo e zelando pelos filhos e pelo pai/mãe de seus filhos, e também principalmente manter a castidade. A importância da castidade é porque ninguém dessas relações soube valorizar o presente de Deus que é o sexo, e profanou o ato do sexo e consequentemente o templo de Deus (corpo do homem).
+
+Lucas 20
+
+27. Alguns saduceus – que negam a ressurreição – aproximaram-se de Jesus e perguntaram-lhe:
+28. “Mestre, Moisés prescreveu-nos: Se alguém morrer e deixar mulher, mas não deixar filhos, case-se com ela o irmão dele, e dê descendência a seu irmão.
+29. Ora, havia sete irmãos, o primeiro dos quais tomou uma mulher, mas morreu sem filhos.
+30. Casou-se com ela o segundo, mas também ele morreu sem filhos.
+31. Casou-se depois com ela o terceiro. E assim sucessivamente todos os sete, que morreram sem deixar filhos.
+32. Por fim, morreu também a mulher.
+33. Na ressurreição, de qual deles será a mulher? Porque os sete a tiveram por mulher”.*
+34. Jesus respondeu: “Os filhos deste mundo casam-se e dão-se em casamento,
+35. mas os que serão julgados dignos do século futuro e da ressurreição dos mortos não terão mulher nem marido.
+36. Eles jamais poderão morrer, porque são iguais aos anjos e são filhos de Deus, porque são ressuscitados.
+37. Por outra parte, que os mortos hão de ressuscitar é o que Moisés revelou na passagem da sarça ardente (Ex 3,6), chamando ao Senhor: Deus de Abraão, Deus de Isaac, Deus de Jacó.
+38. Ora, Deus não é Deus dos mortos, mas dos vivos; porque todos vivem para ele”.
+
+- Resumindo, para essas situações de completo descaso com o matrimônio/casamento, em que se toma mais de uma mulher fazendo filhos, deve-se tanto os homens quanto as mulheres se mortificarem e ressuscitarem em Cristo usando os sacramentos da Confissão e Eucaristia, e logo após a ressureição viver como os Anjos nos céus, vivendo o Amor em Fraternidade, e aderindo a castidade.
 
 - Filhos de um adultério/(segundo parceiro) de seus pais não devem se sentir filhos do mal por isto, pois quem concede a vida é Cristo(Deus), pois este é o Deus que permite e abençoa flores brotarem no deserto do pecado. Aos pais carnais cabe reconhecer suas misérias e não voltar ao erro para não ser uma má influência para seus filhos.
 
